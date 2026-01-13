@@ -1,4 +1,4 @@
-# seekonkucc_CommunionClass
+#### seekonkucc_CommunionClass
 
 ### Lesson 19 : Epiphany - 1/4
 
