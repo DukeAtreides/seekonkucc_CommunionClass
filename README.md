@@ -103,7 +103,60 @@ How can we be role models for others?
 ### TODO:  Play the ‘Names of the Disciples” game. Presumably this is Disciples bingo?
 ### Read: If time, Read The Lord’s Prayer Illustrated by Tim Ladwig TODO: Do we have this book?
 
+## Lesson 24 - 2/8/2026  The Feeding of the 5000 
+### Theme: Bread and Wine as symbols of spiritual nourishment; and the things we do to nourish our souls
+### Read: The Feeding of the Five Thousand,The Children’s Illustrated Bible, page 228
+### Context: This next part ties the lesson into Communion, which we are building up to.
+Right after the feeding of the 5000, Jesus said: “I am the bread of life...My flesh is real food and my blood is real drink. 
+Whoever eats my flesh and drinks my blood remains in me, and I in them.”  Then he explained that “The words I have spoken to you—
+they are full of the Spirit] and life”. And what that means is that his message of love for one another, following the Golden Rule, 
+sharing, thinking of others – those things nourish you and the communities that you live in. Love nourishes your spirit. Think about 
+it - when people, especially your family, treat you with love, do you feel nourished? Does it feel good to show love to others? At communion, 
+we receive bread and juice that represent Jesus’ body and blood - they represent that we want to live out the Golden Rule. The church itself 
+is also called the Body of Christ, and that means that Christians are supposed to work together to treat everyone with kindness. 
 
+### Introduce Social Mission & Action
+At our church, we help others. 
+A group of people called the Social Mission and Action Committee meets to coordinate our efforts to help people. 
+### Visit the porch to show the food pantry where anyone can take food if they need it.
+On Saturdays, our church also delivers food to people who need help. We work with a place called Doorways. Doorways is in Seekonk, located at the former North School.
+We, as a church, also collect used clothes to give to people who need them.
+We, as a church, also help a tiny country called Haiti. 
+As a country, the USA also gives food stamps to people who need food. 
+As you get older, in these classes, you will learn about ways people need help and how you can help. 
+### Passport Location: Food Pantry
+
+## Lesson 25 - 2/15/2026 Sunday Before Lent: The Centurion’s Servant / Works of Mercy / Sacrifice
+### Theme: Empathy and helping those who need it; sacrificing for each other. Building up to introduce Lent.
+### Read: The Centurion’s Servant pages 218-219
+We don’t have power like Jesus did to heal people. We need medicine and doctors. But we can help people who are hurting and in pain. Has anyone heard of 
+the term empathy before? Empathy means the ability to understand and share the feelings of another.
+Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
+The Corporal Works of Mercy: 
+- To feed the hungry
+- To give water to the thirsty
+- To clothe the naked
+- To shelter the homeless
+- To visit the sick
+- To visit the imprisoned, or ransom the captive
+- To bury the dead.
+The Spiritual Works of Mercy:
+- To instruct the ignorant
+- To counsel the doubtful
+- To bear patiently those who wrong oneself
+- To forgive offenses
+- To comfort the afflicted
+- To pray for the living and the dead
+- To admonish sinners
+Sometimes to do these things, we have to sacrifice something for someone else. When we have cookies,
+we might have to make a sacrifice and share them with our brother. A sacrifice is giving up something
+that is good for someone else. Lent is next week. That is a time when we make a small sacrifice. That could be
+sacrificing our time and doing an extra chore or something nice. It could be giving something up, like chocolate,
+to help us practice sacrificing. Do you think you will make a Lenten sacrifice? Lent starts on Ash Wednesday. We
+get ashes on our heads. That is a symbol of sacrifice and is supposed to make us think. 
+Before we go into Lent and do our sacrifice, there is a big party called Mardi Gras. We will have a Mardi Gras day party today at coffee hour! 
+### Discuss: Sacrifice, works of mercy, Lent etc. 
+### Explain the Lenten Chain
 
 
 
