@@ -1,163 +1,169 @@
-# seekonkucc_CommunionClass
+# Communion Class Lesson Templates
 
-## Purpose
-This document describes a Communion Celebration program for 2nd graders
-at Seekonk UCC.
+---
 
-## Lesson 19 : Epiphany - 1/4
-### Theme: Light of the World
-### Read: The Wise Men,The Children’s Illustrated Bible, page 196
-### Epiphany Project:
+## Lesson 21 — Martin Luther King Jr. and Racism
+- **Lesson #:** 21  
+- **Date:** (Date not specified; context suggests MLK weekend)  
+- **Theme:** Understanding Racism and Standing Up for Justice  
+- **Age / Grade:** Elementary (younger children)  
+- **Duration:** 45–60 minutes  
+- **Learning objectives:**  
+  - Understand the concept of racism and discrimination.  
+  - Learn about Martin Luther King Jr. and his role in fighting unjust laws.  
+  - Recognize the importance of standing up for the rights of others.  
+- **Scripture / Read:** MLK Book (title not fully specified)  
+- **Context / Purpose:** To introduce children to the history of racism in the U.S., the civil rights movement, and the Christian call to justice and equality.  
+- **Opening (Say):**  
+  > "In our country, even made laws to hurt African Americans. This is called discrimination and racism. When your grandparents were kids, a Christian pastor named Martin Luther King Jr. stood up to those unjust laws. He gave a famous speech called the 'I Have a Dream' speech. Later, in Memphis, Tennessee, he was killed for this, and we celebrate his life this weekend. Even though we don’t have those laws anymore, there is still a lot of racism in our country today. As Christians, we need to speak up for the rights of other people, especially those who are different from us."  
+- **Key questions / Discussion points:**  
+  - What does racism mean?  
+  - How do you feel about people being treated unfairly?  
+  - Why is it important to stand up for others?  
+- **Materials / Supplies:** MLK Book, construction paper, markers, scissors  
+- **Activities (step-by-step):**  
+  1. Read the MLK Book together.  
+  2. Discuss the meaning of racism and discrimination.  
+  3. Activity: “We All Love in the Same Color” — trace children’s hands and arms on different colored construction paper, make a large heart for all to sign, place hands on cardstock, attach heart in front.  
+- **Teacher notes / Tips:**  
+  - Use the phrase “when your grandparents were kids” to give historical context.  
+  - Ask children to summarize and express their feelings about the lesson.  
+- **Passport Location:** Memphis, Tennessee  
+- **Resources / Books / Handouts:** MLK Book  
+- **TODOs / follow-up:** None specified  
+- **Assessment / Closing:** Children share what they learned about fairness and standing up for others.  
+- **Home connection / Family activity:** Encourage families to talk about fairness and kindness at home.
 
-Finger Paint Picture ‘May the Christmas Star Lead you to Jesus, The Light of the World’
-Supplies: Finger Paint, Card Stock, Hair Dryer, Paper Towels, Print Out of above saying
-We discussed what it means to be the light of the world: Compassion, the Golden Rule, and 
-using our brains to help out society (using medical advances as an example). 
+---
 
-## Lesson 20 1/11 : Baptism of Jesus
-### Theme: Baptism John the Baptist and Sacraments
+## Lesson 22 — The Sermon on the Mount
+- **Lesson #:** 22  
+- **Date:** 1/25 (Year not specified, presumably 2026)  
+- **Theme:** What Does God Require? The Golden Rule and Helping Others  
+- **Age / Grade:** Elementary  
+- **Duration:** 45–60 minutes  
+- **Learning objectives:**  
+  - Understand the Golden Rule and its importance.  
+  - Learn about Jesus’ teachings on kindness and generosity.  
+  - Connect Jesus’ Sermon on the Mount to everyday actions.  
+- **Scripture / Read:** The Kindness Book  
+- **Context / Purpose:** To teach children about Jesus’ Sermon on the Mount and the Golden Rule as a foundation for Christian living.  
+- **Opening (Say):**  
+  > "Last week, we talked about Martin Luther King Jr. and how we need to treat other people the right way. We talked about the Golden Rule. What is the Golden Rule?"  
+  > (Expected answer: “Treat other people how you want to be treated, if you were in their shoes.”)  
+- **Key questions / Discussion points:**  
+  - What is the Golden Rule?  
+  - How can we help others like Jesus taught?  
+- **Materials / Supplies:** Stole fabric, paint, stamps (heart, bread, chalice, dove), vinyl tablecloths, paper bowls  
+- **Activities (step-by-step):**  
+  1. Discuss the Sermon on the Mount and the Golden Rule.  
+  2. Read The Kindness Book.  
+  3. Decorate stoles with symbols (heart, bread, chalice, dove) using paint stamps.  
+  4. Play music while creating stoles.  
+  5. Allow stoles to dry until next week.  
+- **Teacher notes / Tips:**  
+  - Emphasize the importance of kindness and generosity.  
+  - Remind children to put their name on the back of the stole at the neck area.  
+- **Passport Location:** Not specified  
+- **Resources / Books / Handouts:** The Kindness Book  
+- **TODOs / follow-up:** Allow stoles to dry and prepare for next week’s use.  
+- **Assessment / Closing:** Review the Golden Rule and how children can practice it.  
+- **Home connection / Family activity:** Encourage children to practice the Golden Rule at home.
 
-Hang up photos and dove worksheet on bulletin board
-Say: “Last week, we talked about the symbol of light. Today, we talk about baptism, which uses symbols. 
-Baptism and Communion are 2 sacraments. A sacrament is a ritual - a symbolic thing people do at church - 
-to remember Jesus. Baptism is the sacrament of how people become Christians.” 
+---
 
-Ask- does anyone know what happens at baptism, and who gets baptized? 
-Say - “What happens is that the pastor will put water on your head, and say, “I baptize you in the name of 
-the Father, the Son, and the Holy Spirit”. A lot of people are baptized as babies, but anyone joining the 
-church can be baptized. You are only baptized once. Sometimes people have godparents, or sponsors. In the Service 
-of Christian Baptism, WATER stands for the promise of the gift of God’s grace in our lives and being flooded with 
-the new life that is experienced through Jesus Christ” (This last sentence comes directly from Seekonk UCC)
-Ask: “What does it mean to be a follower of Jesus, that we discussed from last week?”
-Answers: Following the Golden Rule of treating others as you would treat them, and showing compassion to the less fortunate.
+## Lesson 23 — The Disciples, Role Models, Being a Follower, Being a Leader
+- **Lesson #:** 23  
+- **Date:** 2/1 (Year not specified, presumably 2026)  
+- **Theme:** Role Models, Following Jesus, Leadership  
+- **Age / Grade:** Elementary  
+- **Duration:** 45–60 minutes  
+- **Learning objectives:**  
+  - Understand what it means to follow Jesus.  
+  - Recognize the importance of role models.  
+  - Reflect on how to be a positive role model and leader.  
+- **Scripture / Read:** Jesus Calls His Disciples, The Children’s Illustrated Bible, p.210  
+- **Context / Purpose:** To explore discipleship and leadership through Jesus’ example.  
+- **Opening (Say):** Not explicitly provided; can start with a recap of previous lessons and introduce discipleship.  
+- **Key questions / Discussion points:**  
+  - What does it mean to follow Jesus?  
+  - Who are your role models?  
+  - How can you be a good role model for others?  
+  - How does critical thinking help us choose who to follow?  
+- **Materials / Supplies:** The Children’s Illustrated Bible, game materials for “Names of the Disciples” (Disciples bingo or similar)  
+- **Activities (step-by-step):**  
+  1. Read Jesus Calls His Disciples story.  
+  2. Discuss role models and following Jesus.  
+  3. Play “Names of the Disciples” game.  
+  4. If time permits, read The Lord’s Prayer Illustrated by Tim Ladwig (check availability).  
+- **Teacher notes / Tips:**  
+  - Encourage children to think about their own role models.  
+  - Use the game to reinforce disciples’ names and roles.  
+- **Passport Location:** Not specified  
+- **Resources / Books / Handouts:** The Children’s Illustrated Bible, The Lord’s Prayer Illustrated (if available)  
+- **TODOs / follow-up:** Confirm availability of The Lord’s Prayer Illustrated book.  
+- **Assessment / Closing:** Children share one way they can follow Jesus this week.  
+- **Home connection / Family activity:** Talk about role models and leadership at home.
 
-In Jesus’ time, there were no Christians! Baptism was performed on Jewish adults who followed a prophet named John the Baptist. 
-A prophet is someone who gives God’s message. The followers of John the Baptist were waiting for the coming of the Messiah (Jesus), a 
-savior who would make the world a better place. Even Jesus was baptized by John.
+---
 
-### Read: Jesus’s Baptism Story, The Children’s Illustrated Bible, page 202. Make sure to read the sidebar about the dove on page 203. 
-Sign dove worksheets with markers
-Decorate Dove cut-out cookies
-Talk about each child’s baptism. Discuss godparents. 
-### Passport Location: Jordan River
+## Lesson 24 — The Feeding of the 5000
+- **Lesson #:** 24  
+- **Date:** 2/8/2026  
+- **Theme:** Bread and Wine as Symbols of Spiritual Nourishment; Nourishing Our Souls  
+- **Age / Grade:** Elementary (2nd grade suggested)  
+- **Duration:** 45–60 minutes  
+- **Learning objectives:**  
+  - Explain the symbolism of bread and wine in Communion.  
+  - Understand how love and sharing nourish the spirit.  
+  - Learn about the church’s role in helping others.  
+- **Scripture / Read:** The Feeding of the Five Thousand, The Children’s Illustrated Bible, p.228  
+- **Context / Purpose:** To connect the biblical story to Communion and the church’s mission of love and service.  
+- **Opening (Say):**  
+  > "Right after the feeding of the 5,000, Jesus said: ‘I am the bread of life... My flesh is real food and my blood is real drink. Whoever eats my flesh and drinks my blood remains in me, and I in them.’ Then he explained that ‘The words I have spoken to you—they are full of the Spirit and life.’ That means his message of love for one another, following the Golden Rule, sharing, thinking of others — those things nourish you and the communities you live in. Love nourishes your spirit."  
+- **Key questions / Discussion points:**  
+  - How does love nourish you?  
+  - How do we share and care for others in our church?  
+- **Materials / Supplies:** The Children’s Illustrated Bible, materials for Social Mission & Action introduction  
+- **Activities (step-by-step):**  
+  1. Read the story aloud and highlight Jesus’ “bread of life” words.  
+  2. Group discussion linking sharing to nourishment.  
+  3. Introduce Social Mission & Action — show food pantry (porch) and explain Doorways.  
+  4. Optional: craft or reflection about ways to help others.  
+- **Teacher notes / Tips:**  
+  - Use practical examples children understand (sharing food at home).  
+  - Keep discussion age-appropriate regarding hunger and help.  
+- **Passport Location:** Food Pantry  
+- **Resources / Books / Handouts:** The Children’s Illustrated Bible  
+- **TODOs / follow-up:** Plan next week’s craft; coordinate porch visit logistics  
+- **Assessment / Closing:** Quick circle-share: one way you can help someone this week.  
+- **Home connection / Family activity:** Encourage families to donate a nonperishable food item or discuss sharing at home.
 
-## Lesson 21 1/18 : Martin Luther King
-### Theme: Martin Luther King: Peace Maker, Justice Seeker, Jesus stood up for Justice and this Dream 
-Say: “During the past few weeks, we’ve discussed the Golden Rule and being a follower of Jesus at baptism. Can anyone tell me what that 
-means?” Golden Rule - Treat other people how you want to be treated, if you were in their shoes.
-Say: “We also talked about being the light of the world, and that darkness is a symbol of people being mean to each other. Some people 
-are really mean, and some people are ignorant - which means they don’t know any better - and that causes them to treat other people as 
-inferior - that’s a fancy way to say, treating them as less important. These people sometimes judge others based on their skin color, 
-and in our country, even made laws to hurt African Americans. This is called discrimination and racism. When your grandparents were kids, 
-a Christian pastor named Martin Luther King Jr stood up to those unjust laws. He gave a famous speech called the “I have a dream” speech. 
-Later, in Memphis Tennessee, he was killed for this, and we celebrate his life this weekend. Even though we don’t have those laws anymore, 
-there is still a lot of racism in our country today. As Christians, we need to speak up for the rights of other people, especially those who 
-are different from us.”
-### Notes for teacher: Specifically saying “when your grandparents were kids”, gives the kids context that racism isn’t some ancient thing, and puts MLK into context. 
+---
 
-Ask the kids to summarize what was just said, and how they feel about it. 
+## Lesson 25 — Sunday Before Lent: The Centurion’s Servant / Works of Mercy / Sacrifice
+- **Lesson #:** 25  
+- **Date:** 2/15/2026  
+- **Theme:** Works of Mercy and Sacrifice  
+- **Age / Grade:** Elementary  
+- **Duration:** 45–60 minutes  
+- **Learning objectives:**  
+  - Understand the story of the Centurion’s Servant.  
+  - Learn about works of mercy and sacrifice in Christian life.  
+  - Reflect on how to practice mercy and sacrifice in daily life.  
+- **Scripture / Read:** (Not specified; presumably the Centurion’s Servant story from the Bible)  
+- **Context / Purpose:** To prepare children for Lent by focusing on mercy and sacrifice.  
+- **Opening (Say):** Not specified; can introduce Lent and the importance of mercy.  
+- **Key questions / Discussion points:**  
+  - What does it mean to show mercy?  
+  - How can we sacrifice for others?  
+- **Materials / Supplies:** Not specified  
+- **Activities (step-by-step):** Not specified  
+- **Teacher notes / Tips:** Not specified  
+- **Passport Location:** Not specified  
+- **Resources / Books / Handouts:** Not specified  
+- **TODOs / follow-up:** Prepare materials and activities for this lesson.  
+- **Assessment / Closing:** Not specified  
+- **Home connection / Family activity:** Encourage families to discuss ways to show mercy and sacrifice during Lent.
 
-### Read MLK Book
-
-### Activity: ‘We all Love in the same color’:
-Trace Children’s hand and arm in different color construction paper
-Make a heart large enough for all children to sign their name
-Place traced hands on card stock
-Attach heart in front of hands.
-### Passport Location: Memphis, Tennessee 
-
-## Lesson 22 1/25 : The Sermon on the Mount
-### Theme: What does God require? The Golden Rule, etc. 
-Say: Last week, we talked about Martin Luther King Jr, and how we need to treat other people the right way. We talked about the Golden Rule. What is the Golden Rule?”
-Treat other people how you want to be treated, if you were in their shoes.
-People followed Jesus on a mountain, where he taught people about God. This is called the Sermon on the Mount. He talked about the Golden Rule. Jesus did not invent the Golden 
-Rule, but he taught it. He also taught about helping others. He said, “if you have an extra coat, then give it away to someone who doesn't have one”.
-
-### Read the Kindness Book
-
-### Activity: Stoles
-Now, for the fun, we will make stoles. Stoles are used in church to symbolize ministers and other volunteers. It symbolizes following Jesus. We will decorate our stoles with symbols. 
-
-Play Cd music while creating stoles 
-
-Remember Stoles (p.37) (please put name on back at neck area)
-put vinyl table cloths down for protection
-pour paint into paper bowls
-stamp one of each image, heart, bread, chalice, dove, on each end of fabric, remember to spread out flat, once stamped at one end it can not be moved
-allow to dry until next week
-
-## Lesson 23 - 2/1
-
-### Theme: The Disciples, Role Models, Being a Follower, Being a leader
- 
-We’ve been talking about what it means to be a follower of Jesus. 
-
-### Read: Jesus Calls His Disciples,The Children’s Illustrated Bible, page 210
-
-What does it mean to follow Jesus?
-	-> Golden rule, forgiveness, etc.
-
-### Talk about role models in kids’ lives. What does the role of critical thinking play in helping shape who we follow?
-How can we be role models for others?
-
-### TODO:  Play the ‘Names of the Disciples” game. Presumably this is Disciples bingo?
-### Read: If time, Read The Lord’s Prayer Illustrated by Tim Ladwig TODO: Do we have this book?
-
-## Lesson 24 - 2/8/2026  The Feeding of the 5000 
-### Theme: Bread and Wine as symbols of spiritual nourishment; and the things we do to nourish our souls
-### Read: The Feeding of the Five Thousand,The Children’s Illustrated Bible, page 228
-### Context: This next part ties the lesson into Communion, which we are building up to.
-Right after the feeding of the 5000, Jesus said: “I am the bread of life...My flesh is real food and my blood is real drink. 
-Whoever eats my flesh and drinks my blood remains in me, and I in them.”  Then he explained that “The words I have spoken to you—
-they are full of the Spirit] and life”. And what that means is that his message of love for one another, following the Golden Rule, 
-sharing, thinking of others – those things nourish you and the communities that you live in. Love nourishes your spirit. Think about 
-it - when people, especially your family, treat you with love, do you feel nourished? Does it feel good to show love to others? At communion, 
-we receive bread and juice that represent Jesus’ body and blood - they represent that we want to live out the Golden Rule. The church itself 
-is also called the Body of Christ, and that means that Christians are supposed to work together to treat everyone with kindness. 
-
-### Introduce Social Mission & Action
-At our church, we help others. 
-A group of people called the Social Mission and Action Committee meets to coordinate our efforts to help people. 
-### Visit the porch to show the food pantry where anyone can take food if they need it.
-On Saturdays, our church also delivers food to people who need help. We work with a place called Doorways. Doorways is in Seekonk, located at the former North School.
-We, as a church, also collect used clothes to give to people who need them.
-We, as a church, also help a tiny country called Haiti. 
-As a country, the USA also gives food stamps to people who need food. 
-As you get older, in these classes, you will learn about ways people need help and how you can help. 
-### Passport Location: Food Pantry
-
-## Lesson 25 - 2/15/2026 Sunday Before Lent: The Centurion’s Servant / Works of Mercy / Sacrifice
-### Theme: Empathy and helping those who need it; sacrificing for each other. Building up to introduce Lent.
-### Read: The Centurion’s Servant pages 218-219
-We don’t have power like Jesus did to heal people. We need medicine and doctors. But we can help people who are hurting and in pain. Has anyone heard of 
-the term empathy before? Empathy means the ability to understand and share the feelings of another.
-Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
-The Corporal Works of Mercy: 
-- To feed the hungry
-- To give water to the thirsty
-- To clothe the naked
-- To shelter the homeless
-- To visit the sick
-- To visit the imprisoned, or ransom the captive
-- To bury the dead.
-The Spiritual Works of Mercy:
-- To instruct the ignorant
-- To counsel the doubtful
-- To bear patiently those who wrong oneself
-- To forgive offenses
-- To comfort the afflicted
-- To pray for the living and the dead
-- To admonish sinners
-Sometimes to do these things, we have to sacrifice something for someone else. When we have cookies,
-we might have to make a sacrifice and share them with our brother. A sacrifice is giving up something
-that is good for someone else. Lent is next week. That is a time when we make a small sacrifice. That could be
-sacrificing our time and doing an extra chore or something nice. It could be giving something up, like chocolate,
-to help us practice sacrificing. Do you think you will make a Lenten sacrifice? Lent starts on Ash Wednesday. We
-get ashes on our heads. That is a symbol of sacrifice and is supposed to make us think. 
-Before we go into Lent and do our sacrifice, there is a big party called Mardi Gras. We will have a Mardi Gras day party today at coffee hour! 
-### Discuss: Sacrifice, works of mercy, Lent etc. 
-### Explain the Lenten Chain
-
-
-
-
+---
