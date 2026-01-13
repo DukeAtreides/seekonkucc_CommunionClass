@@ -4,7 +4,7 @@
 
 ## Lesson 21 — Martin Luther King Jr. and Racism
 - **Lesson #:** 21  
-- **Date:** (Date not specified; context suggests MLK weekend)  
+- **Date:** 1/18/2026 (MLK weekend)
 - **Theme:** Understanding Racism and Standing Up for Justice  
 - **Age / Grade:** Elementary (younger children)  
 - **Duration:** 45–60 minutes  
@@ -12,7 +12,7 @@
   - Understand the concept of racism and discrimination.  
   - Learn about Martin Luther King Jr. and his role in fighting unjust laws.  
   - Recognize the importance of standing up for the rights of others.  
-- **Scripture / Read:** MLK Book (title not fully specified)  
+- **Scripture / Read:** MLK Book provided
 - **Context / Purpose:** To introduce children to the history of racism in the U.S., the civil rights movement, and the Christian call to justice and equality.  
 - **Opening (Say):**  
   > "In our country, even made laws to hurt African Americans. This is called discrimination and racism. When your grandparents were kids, a Christian pastor named Martin Luther King Jr. stood up to those unjust laws. He gave a famous speech called the 'I Have a Dream' speech. Later, in Memphis, Tennessee, he was killed for this, and we celebrate his life this weekend. Even though we don’t have those laws anymore, there is still a lot of racism in our country today. As Christians, we need to speak up for the rights of other people, especially those who are different from us."  
@@ -151,7 +151,7 @@
   - Understand the story of the Centurion’s Servant.  
   - Learn about works of mercy and sacrifice in Christian life.  
   - Reflect on how to practice mercy and sacrifice in daily life.  
-- **Scripture / Read:** (Not specified; presumably the Centurion’s Servant story from the Bible)  
+- **Scripture / Read:**  The Centurion’s Servant  
 - **Context / Purpose:** To prepare children for Lent by focusing on mercy and sacrifice.  
 - **Opening (Say):** Not specified; can introduce Lent and the importance of mercy.  
 - **Key questions / Discussion points:**  
