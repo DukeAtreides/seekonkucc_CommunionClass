@@ -1,4 +1,4 @@
-# Communion Class Lesson Templates
+# 2026 Communion Class Lesson Plan for Seekonk Congregational Church
 
 ---
 
@@ -15,7 +15,7 @@
 - **Scripture / Read:** MLK Book provided
 - **Context / Purpose:** To introduce children to the history of racism in the U.S., the civil rights movement, and the Christian call to justice and equality.  
 - **Opening (Say):**  
-  > "In our country, even made laws to hurt African Americans. This is called discrimination and racism. When your grandparents were kids, a Christian pastor named Martin Luther King Jr. stood up to those unjust laws. He gave a famous speech called the 'I Have a Dream' speech. Later, in Memphis, Tennessee, he was killed for this, and we celebrate his life this weekend. Even though we don’t have those laws anymore, there is still a lot of racism in our country today. As Christians, we need to speak up for the rights of other people, especially those who are different from us."  
+  > "We talked about being the light of the world, and that darkness is a symbol of people being mean to each other. Some people are really mean, and some people are ignorant - which means they don’t know any better - and that causes them to treat other people as inferior - that’s a fancy way to say, treating them as less important. These people sometimes judge others based on their skin color, and in our country, even made laws to hurt African Americans. This is called discrimination and racism. When your grandparents were kids, a Christian pastor named Martin Luther King Jr. stood up to those unjust laws. He gave a famous speech called the 'I Have a Dream' speech. Later, in Memphis, Tennessee, he was killed for this, and we celebrate his life this weekend. Even though we don’t have those laws anymore, there is still a lot of racism in our country today. As Christians, we need to speak up for the rights of other people, especially those who are different from us."  
 - **Key questions / Discussion points:**  
   - What does racism mean?  
   - How do you feel about people being treated unfairly?  
@@ -38,7 +38,7 @@
 
 ## Lesson 22 — The Sermon on the Mount
 - **Lesson #:** 22  
-- **Date:** 1/25 (Year not specified, presumably 2026)  
+- **Date:** 1/25/2026
 - **Theme:** What Does God Require? The Golden Rule and Helping Others  
 - **Age / Grade:** Elementary  
 - **Duration:** 45–60 minutes  
@@ -50,7 +50,8 @@
 - **Context / Purpose:** To teach children about Jesus’ Sermon on the Mount and the Golden Rule as a foundation for Christian living.  
 - **Opening (Say):**  
   > "Last week, we talked about Martin Luther King Jr. and how we need to treat other people the right way. We talked about the Golden Rule. What is the Golden Rule?"  
-  > (Expected answer: “Treat other people how you want to be treated, if you were in their shoes.”)  
+  > (Expected answer: “Treat other people how you want to be treated, if you were in their shoes.”)
+  >  "Jesus gave a speech about the Golden rule. This is called the Sermon on the Mount."
 - **Key questions / Discussion points:**  
   - What is the Golden Rule?  
   - How can we help others like Jesus taught?  
@@ -74,7 +75,7 @@
 
 ## Lesson 23 — The Disciples, Role Models, Being a Follower, Being a Leader
 - **Lesson #:** 23  
-- **Date:** 2/1 (Year not specified, presumably 2026)  
+- **Date:** 2/1/2026
 - **Theme:** Role Models, Following Jesus, Leadership  
 - **Age / Grade:** Elementary  
 - **Duration:** 45–60 minutes  
@@ -99,7 +100,7 @@
 - **Teacher notes / Tips:**  
   - Encourage children to think about their own role models.  
   - Use the game to reinforce disciples’ names and roles.  
-- **Passport Location:** Not specified  
+- **Passport Location:** Sea of Galilee (where Simon Peter was fishing)
 - **Resources / Books / Handouts:** The Children’s Illustrated Bible, The Lord’s Prayer Illustrated (if available)  
 - **TODOs / follow-up:** Confirm availability of The Lord’s Prayer Illustrated book.  
 - **Assessment / Closing:** Children share one way they can follow Jesus this week.  
@@ -107,11 +108,11 @@
 
 ---
 
-## Lesson 24 — The Feeding of the 5000
+## Lesson 24 — The Feeding of the 5000 / Bread of Life / Social Mission & Action Committee
 - **Lesson #:** 24  
 - **Date:** 2/8/2026  
 - **Theme:** Bread and Wine as Symbols of Spiritual Nourishment; Nourishing Our Souls  
-- **Age / Grade:** Elementary (2nd grade suggested)  
+- **Age / Grade:** Elementary
 - **Duration:** 45–60 minutes  
 - **Learning objectives:**  
   - Explain the symbolism of bread and wine in Communion.  
@@ -140,6 +141,31 @@
 - **Home connection / Family activity:** Encourage families to donate a nonperishable food item or discuss sharing at home.
 
 ---
+> Under Development
+
+We don’t have power like Jesus did to heal people. We need medicine and doctors. But we can help people who are hurting and in pain. Has anyone heard of the term empathy before? Empathy means the ability to understand and share the feelings of another.
+Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
+The Corporal Works of Mercy: 
+To feed the hungry  
+ To give water to the thirsty 
+To clothe the naked 
+To shelter the homeless 
+To visit the sick 
+To visit the imprisoned, or ransom the captive 
+To bury the dead. 
+The Spiritual Works of Mercy: 
+To instruct the ignorant 
+To counsel the doubtful 
+To bear patiently those who wrong oneself 
+To forgive offenses 
+To comfort the afflicted
+To pray for the living and the dead
+To correct the sinner
+Sometimes to do these things, we have to sacrifice something for someone else. When we have cookies, we might have to make a sacrifice and share them with our brother. A sacrifice is giving up something that is good for someone else. 
+Lent is next week. That is a time when we make a small sacrifice. That could be sacrificing our time and doing an extra chore or something nice. It could be giving something up, like chocolate, to help us practice sacrificing. Do you think you will make a Lenten sacrifice? Lent starts on Ash Wednesday. We get ashes on our heads. That is a symbol of sacrifice and is supposed to make us think. 
+Before we go into Lent and do our sacrifice, there is a big party called Mardi Gras. We will have a Mardi Gras day party today at coffee hour! 
+Discuss: Sacrifice, works of mercy, Lent etc. 
+Explain the Lenten Chain
 
 ## Lesson 25 — Sunday Before Lent: The Centurion’s Servant / Works of Mercy / Sacrifice
 - **Lesson #:** 25  
@@ -153,12 +179,14 @@
   - Reflect on how to practice mercy and sacrifice in daily life.  
 - **Scripture / Read:**  The Centurion’s Servant  
 - **Context / Purpose:** To prepare children for Lent by focusing on mercy and sacrifice.  
-- **Opening (Say):** Not specified; can introduce Lent and the importance of mercy.  
+- **Opening (Say):**
 - **Key questions / Discussion points:**  
   - What does it mean to show mercy?  
   - How can we sacrifice for others?  
 - **Materials / Supplies:** Not specified  
-- **Activities (step-by-step):** Not specified  
+- **Activities (step-by-step):**
+  1. Read the Centurion's Servant
+  2. Discuss the Spiritual and Corporal works of Mercy and how sometimes we need to sacrifice.
 - **Teacher notes / Tips:** Not specified  
 - **Passport Location:** Not specified  
 - **Resources / Books / Handouts:** Not specified  
