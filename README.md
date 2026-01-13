@@ -1,6 +1,7 @@
 # 2026 Communion Class Lesson Plan for Seekonk Congregational Church
 
 ---
+All classes begin with the Lords Prayer
 
 ## Lesson 21 — Martin Luther King Jr. and Racism
 - **Lesson #:** 21  
@@ -136,36 +137,12 @@
   - Keep discussion age-appropriate regarding hunger and help.  
 - **Passport Location:** Food Pantry  
 - **Resources / Books / Handouts:** The Children’s Illustrated Bible  
-- **TODOs / follow-up:** Plan next week’s craft; coordinate porch visit logistics  
+- **TODOs / follow-up:** 
 - **Assessment / Closing:** Quick circle-share: one way you can help someone this week.  
 - **Home connection / Family activity:** Encourage families to donate a nonperishable food item or discuss sharing at home.
 
 ---
-> Under Development
-
-We don’t have power like Jesus did to heal people. We need medicine and doctors. But we can help people who are hurting and in pain. Has anyone heard of the term empathy before? Empathy means the ability to understand and share the feelings of another.
-Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
-The Corporal Works of Mercy: 
-To feed the hungry  
- To give water to the thirsty 
-To clothe the naked 
-To shelter the homeless 
-To visit the sick 
-To visit the imprisoned, or ransom the captive 
-To bury the dead. 
-The Spiritual Works of Mercy: 
-To instruct the ignorant 
-To counsel the doubtful 
-To bear patiently those who wrong oneself 
-To forgive offenses 
-To comfort the afflicted
-To pray for the living and the dead
-To correct the sinner
-Sometimes to do these things, we have to sacrifice something for someone else. When we have cookies, we might have to make a sacrifice and share them with our brother. A sacrifice is giving up something that is good for someone else. 
-Lent is next week. That is a time when we make a small sacrifice. That could be sacrificing our time and doing an extra chore or something nice. It could be giving something up, like chocolate, to help us practice sacrificing. Do you think you will make a Lenten sacrifice? Lent starts on Ash Wednesday. We get ashes on our heads. That is a symbol of sacrifice and is supposed to make us think. 
-Before we go into Lent and do our sacrifice, there is a big party called Mardi Gras. We will have a Mardi Gras day party today at coffee hour! 
-Discuss: Sacrifice, works of mercy, Lent etc. 
-Explain the Lenten Chain
+> Under Development - Todo: Need an activity
 
 ## Lesson 25 — Sunday Before Lent: The Centurion’s Servant / Works of Mercy / Sacrifice
 - **Lesson #:** 25  
@@ -183,13 +160,25 @@ Explain the Lenten Chain
 - **Key questions / Discussion points:**  
   - What does it mean to show mercy?  
   - How can we sacrifice for others?  
-- **Materials / Supplies:** Not specified  
+- **Materials / Supplies:** 
 - **Activities (step-by-step):**
   1. Read the Centurion's Servant
-  2. Discuss the Spiritual and Corporal works of Mercy and how sometimes we need to sacrifice.
+  2. Segway:
+     > "We don’t have power like Jesus did to heal people. We need medicine and doctors. 
+     > But we can help people who are hurting and in pain. Has anyone heard of the term empathy before?
+     > Empathy means the ability to understand and share the feelings of another. Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
+  4. Read the Works of Mercy handout
+  5. Discuss sacrifice and Lent
+     > Sometimes to do these things, we have to sacrifice something for someone else.
+     > When we have cookies, we might have to make a sacrifice and share them with our brother.
+     > A sacrifice is giving up something that is good for someone else. Lent is next week.
+     > That is a time when we make a small sacrifice. That could be sacrificing our time and doing an extra chore or something nice.
+     > It could be giving something up, like chocolate, to help us practice sacrificing. Do you think you will make a Lenten sacrifice?
+     > Lent starts on Ash Wednesday. We get ashes on our heads. That is a symbol of sacrifice and is supposed to make us think.
+     > Before we go into Lent and do our sacrifice, there is a big party called Mardi Gras. We will have a Mardi Gras day party today at coffee hour! 
 - **Teacher notes / Tips:** Not specified  
 - **Passport Location:** Not specified  
-- **Resources / Books / Handouts:** Not specified  
+- **Resources / Books / Handouts:**  Works of Mercy handout
 - **TODOs / follow-up:** Prepare materials and activities for this lesson.  
 - **Assessment / Closing:** Not specified  
 - **Home connection / Family activity:** Encourage families to discuss ways to show mercy and sacrifice during Lent.
