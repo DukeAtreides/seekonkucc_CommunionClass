@@ -166,7 +166,7 @@ All classes begin with the Lords Prayer
   2. Segway:
      > "We don’t have power like Jesus did to heal people. We need medicine and doctors. 
      > But we can help people who are hurting and in pain. Has anyone heard of the term empathy before?
-     > Empathy means the ability to understand and share the feelings of another. Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
+     > Empathy means the ability to understand and share the feelings of another. Ways we can show empathy are through the Corporal and Spiritual works of Mercy."
   4. Read the Works of Mercy handout
   5. Discuss sacrifice and Lent
      > Sometimes to do these things, we have to sacrifice something for someone else.
