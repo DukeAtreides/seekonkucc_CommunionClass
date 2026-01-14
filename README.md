@@ -3,39 +3,7 @@
 ---
 All classes begin with the Lords Prayer
 
-## Lesson 21 — Martin Luther King Jr. and Racism
-- **Lesson #:** 21  
-- **Date:** 1/18/2026 (MLK weekend)
-- **Theme:** Understanding Racism and Standing Up for Justice  
-- **Age / Grade:** Elementary (younger children)  
-- **Duration:** 45–60 minutes  
-- **Learning objectives:**  
-  - Understand the concept of racism and discrimination.  
-  - Learn about Martin Luther King Jr. and his role in fighting unjust laws.  
-  - Recognize the importance of standing up for the rights of others.  
-- **Scripture / Read:** MLK Book provided
-- **Context / Purpose:** To introduce children to the history of racism in the U.S., the civil rights movement, and the Christian call to justice and equality.  
-- **Opening (Say):**  
-  > "We talked about being the light of the world, and that darkness is a symbol of people being mean to each other. Some people are really mean, and some people are ignorant - which means they don’t know any better - and that causes them to treat other people as inferior - that’s a fancy way to say, treating them as less important. These people sometimes judge others based on their skin color, and in our country, even made laws to hurt African Americans. This is called discrimination and racism. When your grandparents were kids, a Christian pastor named Martin Luther King Jr. stood up to those unjust laws. He gave a famous speech called the 'I Have a Dream' speech. Later, in Memphis, Tennessee, he was killed for this, and we celebrate his life this weekend. Even though we don’t have those laws anymore, there is still a lot of racism in our country today. As Christians, we need to speak up for the rights of other people, especially those who are different from us."  
-- **Key questions / Discussion points:**  
-  - What does racism mean?  
-  - How do you feel about people being treated unfairly?  
-  - Why is it important to stand up for others?  
-- **Materials / Supplies:** MLK Book, construction paper, markers, scissors  
-- **Activities (step-by-step):**  
-  1. Read the MLK Book together.  
-  2. Discuss the meaning of racism and discrimination.  
-  3. Activity: “We All Love in the Same Color” — trace children’s hands and arms on different colored construction paper, make a large heart for all to sign, place hands on cardstock, attach heart in front.  
-- **Teacher notes / Tips:**  
-  - Use the phrase “when your grandparents were kids” to give historical context.  
-  - Ask children to summarize and express their feelings about the lesson.  
-- **Passport Location:** Memphis, Tennessee  
-- **Resources / Books / Handouts:** MLK Book  
-- **TODOs / follow-up:** None specified  
-- **Assessment / Closing:** Children share what they learned about fairness and standing up for others.  
-- **Home connection / Family activity:** Encourage families to talk about fairness and kindness at home.
 
----
 
 ## Lesson 22 — The Sermon on the Mount
 - **Lesson #:** 22  
