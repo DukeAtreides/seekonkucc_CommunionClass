@@ -14,7 +14,7 @@ Each year, all we need to do is create one top level schedule that links
 to the lessons. 
 
 Refer to the `md` file that refers to the year.
-Eg: `2026_LessonPlan.md`
+Eg: [2026_LessonPlan.md](2026_LessonPlan.md)
 
 
 ---
