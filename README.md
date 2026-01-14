@@ -1,5 +1,17 @@
-# 2026 Communion Class Lesson Plan for Seekonk Congregational Church
+# Communion Class Lesson Plan for Seekonk Congregational Church
 ## UNDER CONSTRUCTION
+
+The directory structure is divided by the Liturgical Season. 
+Each lesson can be modular. This makes sense because Lent is variable.
+If we structured all the lessons into the calendar year, we'd have to
+write a book from the ground up every year.
+
+Instead, each year, all we need to do is create one top level schedule that links
+to the lessons. 
+
+
+
+
 ---
 All classes begin with the Lords Prayer
 
