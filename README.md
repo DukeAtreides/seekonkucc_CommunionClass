@@ -7,40 +7,7 @@ All classes begin with the Lords Prayer
 
 
 
-## Lesson 23 — The Disciples, Role Models, Being a Follower, Being a Leader
-- **Lesson #:** 23  
-- **Date:** 2/1/2026
-- **Theme:** Role Models, Following Jesus, Leadership  
-- **Age / Grade:** Elementary  
-- **Duration:** 45–60 minutes  
-- **Learning objectives:**  
-  - Understand what it means to follow Jesus.  
-  - Recognize the importance of role models.  
-  - Reflect on how to be a positive role model and leader.  
-- **Scripture / Read:** Jesus Calls His Disciples, The Children’s Illustrated Bible, p.210  
-- **Context / Purpose:** To explore discipleship and leadership through Jesus’ example.  
-- **Opening (Say):** Not explicitly provided; can start with a recap of previous lessons and introduce discipleship.  
-- **Key questions / Discussion points:**  
-  - What does it mean to follow Jesus?  
-  - Who are your role models?  
-  - How can you be a good role model for others?  
-  - How does critical thinking help us choose who to follow?  
-- **Materials / Supplies:** The Children’s Illustrated Bible, game materials for “Names of the Disciples” (Disciples bingo or similar)  
-- **Activities (step-by-step):**  
-  1. Read Jesus Calls His Disciples story.  
-  2. Discuss role models and following Jesus.  
-  3. Play “Names of the Disciples” game.  
-  4. If time permits, read The Lord’s Prayer Illustrated by Tim Ladwig (check availability).  
-- **Teacher notes / Tips:**  
-  - Encourage children to think about their own role models.  
-  - Use the game to reinforce disciples’ names and roles.  
-- **Passport Location:** Sea of Galilee (where Simon Peter was fishing)
-- **Resources / Books / Handouts:** The Children’s Illustrated Bible, The Lord’s Prayer Illustrated (if available)  
-- **TODOs / follow-up:** Confirm availability of The Lord’s Prayer Illustrated book.  
-- **Assessment / Closing:** Children share one way they can follow Jesus this week.  
-- **Home connection / Family activity:** Talk about role models and leadership at home.
 
----
 
 ## Lesson 24 — The Feeding of the 5000 / Bread of Life / Social Mission & Action Committee
 - **Lesson #:** 24  
