@@ -1,5 +1,4 @@
 ## Lesson  — The Feeding of the 5000 / Bread of Life / Social Mission & Action Committee
-- **Date:** 2/8/2026  
 - **Theme:** Bread and Wine as Symbols of Spiritual Nourishment; Nourishing Our Souls  
 - **Age / Grade:** Elementary
 - **Duration:** 45–60 minutes  
