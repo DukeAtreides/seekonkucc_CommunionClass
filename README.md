@@ -1,5 +1,5 @@
 # 2026 Communion Class Lesson Plan for Seekonk Congregational Church
-
+## UNDER CONSTRUCTION
 ---
 All classes begin with the Lords Prayer
 
