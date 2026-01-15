@@ -1,6 +1,9 @@
 # Communion Class Lesson Plan for Seekonk Congregational Church
 ## UNDER CONSTRUCTION
 
+[CLICK HERE FOR 2026 LESSON PLAN](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/2026_LessonPlan.md)
+
+
 The directory structure is divided by the Liturgical Season. 
 Each lesson can be modular. This makes sense because Lent is variable.
 If we structured all the lessons into the calendar year, we'd have to
