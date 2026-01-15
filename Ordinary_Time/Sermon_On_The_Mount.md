@@ -15,20 +15,20 @@
 - **Key questions / Discussion points:**  
   - What is the Golden Rule?  
   - How can we help others like Jesus taught?  
-- **Materials / Supplies:** Stole fabric, paint, stamps (heart, bread, chalice, dove), vinyl tablecloths, paper bowls  
+
 - **Activities (step-by-step):**  
   1. Discuss the Sermon on the Mount and the Golden Rule.  
   2. Read The Kindness Book.  
-  3. Decorate stoles with symbols (heart, bread, chalice, dove) using paint stamps.  
-  4. Play music while creating stoles.  
-  5. Allow stoles to dry until next week.  
+  3. 
+
 - **Teacher notes / Tips:**  
   - Emphasize the importance of kindness and generosity.  
-  - Remind children to put their name on the back of the stole at the neck area.  
+  - 
 - **Passport Location:** Not specified  
 - **Resources / Books / Handouts:** The Kindness Book  
-- **TODOs / follow-up:** Allow stoles to dry and prepare for next week’s use.  
+- **TODOs / follow-up:** 
 - **Assessment / Closing:** Review the Golden Rule and how children can practice it.  
 - **Home connection / Family activity:** Encourage children to practice the Golden Rule at home.
 
 ---
+
