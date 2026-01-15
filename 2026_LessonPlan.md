@@ -1,8 +1,5 @@
-## This schedule is based on the liturgical calendar.
-## Because it is so long, the Easter Season is broken up
-
-
 ## Winter/Spring 2026
+### This schedule is based on the liturgical calendar. Because it is so long, the Easter Season is broken up
 
 ### 12/25/2025 - 1/11: Christmas Season
 ### 1/18: [Martin Luther King](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/SpecialDays/MLK.md)
