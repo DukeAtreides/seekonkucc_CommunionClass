@@ -5,7 +5,9 @@
   - Recognize the importance of role models.  
   - Reflect on how to be a positive role model and leader.  
 - **Context / Purpose:** To explore discipleship and leadership through Jesus’ example.  
-- **Opening (Say):** Not explicitly provided; can start with a recap of previous lessons and introduce discipleship.
+- **Opening (Say):**
+  > "Today, we discuss leadership, role models, and thinking about who we trust and follow.
+  > We will also think about what it means to be a leader."
 -  **Scripture / Read:** Jesus Calls His Disciples, The Children’s Illustrated Bible, p.210  
 - **Key questions / Discussion points:**  
   - What does it mean to follow Jesus?  
