@@ -5,7 +5,7 @@
 ## Winter/Spring 2026
 
 ## 12/25/2025 - 1/11: Christmas Season
-## 1/18: [Martin Luther King](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/SpecialDays/MLK.md
+## 1/18: [Martin Luther King](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/SpecialDays/MLK.md)
 ## 1/25: Sermon On the Mount / Activity: Stoles
 ## 2/1: The Disciples / Activity: Play the Name the Disciples Game
 ## 2/8: The Feeding of the 5000 / Activity : Social Mission & Action Presentation / Visit the porch food pantry
