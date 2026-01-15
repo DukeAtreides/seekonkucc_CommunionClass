@@ -4,8 +4,8 @@
 ### 12/25/2025 - 1/11: Christmas Season
 ### 1/18: [Martin Luther King](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/SpecialDays/MLK.md)
 ### 1/25: [Sermon On the Mount](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Sermon_On_The_Mount.md)
-### 2/1: The Disciples / Activity: Play the Name the Disciples Game
-### 2/8: The Feeding of the 5000 / Activity : Social Mission & Action Presentation / Visit the porch food pantry
+### 2/1: [Jesus calls his Disciples](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Jesus_Calls_Disciples.md)
+### 2/8: The Feeding of the 5000 / Social Mission & Action Presentation
 ### 2/15: Sunday before Lent "Mardi Gras"
 ### 2/22 - 3/29: Lenten Season
 ### 4/2: Holy Thursday
