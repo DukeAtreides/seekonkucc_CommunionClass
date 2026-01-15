@@ -4,12 +4,13 @@
   - Understand the Golden Rule and its importance.  
   - Learn about Jesus’ teachings on kindness and generosity.  
   - Connect Jesus’ Sermon on the Mount to everyday actions.  
-- **Scripture / Read:** The `Be Kind` Book.
 - **Context / Purpose:** To teach children about Jesus’ Sermon on the Mount and the Golden Rule as a foundation for Christian living.  
 - **Opening (Say):**  
   > "Does anyone remember what we discussed last week? What is the Golden Rule?"  
   > (Expected answer: “Treat other people how you want to be treated, if you were in their shoes.”)
   >  "Jesus gave a speech about the Golden rule. This is called the Sermon on the Mount."
+  > We will read a book that discusses things related to the Golden Rule.
+- **Scripture / Read:** The `Be Kind` Book.
 - **Key questions / Discussion points:**  
   - What is the Golden Rule?  
   - How can we help others like Jesus taught?  
