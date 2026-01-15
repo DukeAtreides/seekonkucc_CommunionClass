@@ -1,7 +1,5 @@
 ## Lesson — The Disciples, Role Models, Being a Follower, Being a Leader
 - **Theme:** Role Models, Following Jesus, Leadership  
-- **Age / Grade:** Elementary  
-- **Duration:** 45–60 minutes  
 - **Learning objectives:**  
   - Understand what it means to follow Jesus.  
   - Recognize the importance of role models.  
@@ -24,7 +22,7 @@
   - Encourage children to think about their own role models.  
   - Use the game to reinforce disciples’ names and roles.  
 - **Passport Location:** Sea of Galilee (where Simon Peter was fishing)
-- **Resources / Books / Handouts:** The Children’s Illustrated Bible, The Lord’s Prayer Illustrated (if available)  
+- **Resources / Books / Handouts:** The Lord’s Prayer Illustrated (if available)  
 - **TODOs / follow-up:** Confirm availability of The Lord’s Prayer Illustrated book.  
 - **Assessment / Closing:** Children share one way they can follow Jesus this week.  
 - **Home connection / Family activity:** Talk about role models and leadership at home.
