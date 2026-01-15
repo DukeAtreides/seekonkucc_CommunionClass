@@ -1,4 +1,4 @@
-** Communion Stoles
+*** Communion Stoles
 
 - Materials / Supplies: Stole fabric, paint, stamps (heart, bread, chalice, dove), vinyl tablecloths, paper bowls
 - Decorate stoles with symbols (heart, bread, chalice, dove) using paint stamps.
