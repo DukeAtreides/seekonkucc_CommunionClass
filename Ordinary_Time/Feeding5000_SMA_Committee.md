@@ -1,24 +1,20 @@
 ## Lesson  — The Feeding of the 5000 / Bread of Life / Social Mission & Action Committee
 - **Theme:** Bread and Wine as Symbols of Spiritual Nourishment; Nourishing Our Souls  
-- **Age / Grade:** Elementary
-- **Duration:** 45–60 minutes  
 - **Learning objectives:**  
   - Explain the symbolism of bread and wine in Communion.  
   - Understand how love and sharing nourish the spirit.  
-  - Learn about the church’s role in helping others.  
-- **Scripture / Read:** The Feeding of the Five Thousand, The Children’s Illustrated Bible, p.228  
+  - Learn about the church’s role in helping others.
 - **Context / Purpose:** To connect the biblical story to Communion and the church’s mission of love and service.  
+- **Scripture / Read:** The Feeding of the Five Thousand, The Children’s Illustrated Bible, p.228  
 - **Opening (Say):**  
   > "Right after the feeding of the 5,000, Jesus said: ‘I am the bread of life... My flesh is real food and my blood is real drink. Whoever eats my flesh and drinks my blood remains in me, and I in them.’ Then he explained that ‘The words I have spoken to you—they are full of the Spirit and life.’ That means his message of love for one another, following the Golden Rule, sharing, thinking of others — those things nourish you and the communities you live in. Love nourishes your spirit."  
 - **Key questions / Discussion points:**  
   - How does love nourish you?  
   - How do we share and care for others in our church?  
 - **Materials / Supplies:** The Children’s Illustrated Bible, materials for Social Mission & Action introduction  
-- **Activities (step-by-step):**  
-  1. Read the story aloud and highlight Jesus’ “bread of life” words.  
-  2. Group discussion linking sharing to nourishment.  
-  3. Introduce Social Mission & Action — show food pantry (porch) and explain Doorways.  
-  4. Optional: craft or reflection about ways to help others.  
+- **Activities (step-by-step):**  Introduce Social Mission & Action
+  - Show food pantry (porch)
+  - Explain Doorways.  
 - **Teacher notes / Tips:**  
   - Use practical examples children understand (sharing food at home).  
   - Keep discussion age-appropriate regarding hunger and help.  
