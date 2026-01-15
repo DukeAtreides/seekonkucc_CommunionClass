@@ -4,20 +4,17 @@
   - Understand what it means to follow Jesus.  
   - Recognize the importance of role models.  
   - Reflect on how to be a positive role model and leader.  
-- **Scripture / Read:** Jesus Calls His Disciples, The Children’s Illustrated Bible, p.210  
 - **Context / Purpose:** To explore discipleship and leadership through Jesus’ example.  
-- **Opening (Say):** Not explicitly provided; can start with a recap of previous lessons and introduce discipleship.  
+- **Opening (Say):** Not explicitly provided; can start with a recap of previous lessons and introduce discipleship.
+-  **Scripture / Read:** Jesus Calls His Disciples, The Children’s Illustrated Bible, p.210  
 - **Key questions / Discussion points:**  
   - What does it mean to follow Jesus?  
   - Who are your role models?  
   - How can you be a good role model for others?  
   - How does critical thinking help us choose who to follow?  
-- **Materials / Supplies:** The Children’s Illustrated Bible, game materials for “Names of the Disciples” (Disciples bingo or similar)  
-- **Activities (step-by-step):**  
-  1. Read Jesus Calls His Disciples story.  
-  2. Discuss role models and following Jesus.  
-  3. Play “Names of the Disciples” game.  
-  4. If time permits, read The Lord’s Prayer Illustrated by Tim Ladwig (check availability).  
+- **Materials / Supplies:** Game materials for “Names of the Disciples” (Disciples bingo or similar)  
+- **Activities (step-by-step):** Play “Names of the Disciples” game.  
+  - If time permits, read The Lord’s Prayer Illustrated by Tim Ladwig (check availability).  
 - **Teacher notes / Tips:**  
   - Encourage children to think about their own role models.  
   - Use the game to reinforce disciples’ names and roles.  
