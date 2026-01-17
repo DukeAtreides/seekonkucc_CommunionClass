@@ -8,7 +8,7 @@ Forgive us when we are not kind or helpful.
 Help me God to spread Your Love around 
 In Jesus name we pray -  Amen 
 
-## Lesson: The Lord's Supper and Communion
+## Lesson: The Lord's Supper and Communion / Clay Chalices
 - **Theme:** The Lord's Supper / Communion / Remembering Jesus
 - **Learning objectives:**  
   - Fill in concrete objectives (eg, students will be able to tell you 3 out of 14 works of mercy). 
