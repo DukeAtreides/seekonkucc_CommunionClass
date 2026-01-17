@@ -18,7 +18,7 @@ In Jesus name we pray -  Amen
 - **Opening (Say):**
   > We don’t have power like Jesus did to heal people. We need medicine and doctors. But we can help people who are hurting and in pain. Has anyone heard of the term empathy before? Empathy means the ability to understand and share the feelings of another.
 Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
-- Distribute and discuss the (Works of Mercy Handout)[https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/Works_of_Mercy.md]
+- Distribute and discuss the [Works of Mercy Handout](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/Works_of_Mercy.md)
 - **Key questions / Discussion points:**  
    - What are ways you can do the works of mercy?
    - What are ways you can make sacrifices?
