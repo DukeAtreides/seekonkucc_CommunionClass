@@ -4,8 +4,8 @@ Dear God,
 We are thankful we are gathered here today. 
 Be with us as we learn more about Jesus. 
 When we share bread together we will think of our Jesus. 
-Forgive us when we are not kind or helpful 
-Use me God to spread Your Love around 
+Forgive us when we are not kind or helpful.
+Help me God to spread Your Love around 
 In Jesus name we pray -  Amen 
 
 ## Lesson: Works of Mercy and Sacrifice
