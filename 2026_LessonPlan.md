@@ -8,11 +8,11 @@
 ### 2/8: [The Feeding of the 5000 / Social Mission & Action Presentation](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Feeding5000_SMA_Committee.md)
 ### 2/15: [Sunday Before Lent: Works of Mercy and Sacrifice](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/MardiGras_Sunday.md)
 ### 2/22: [Lent Week 1: Conscience / Peer Pressure / Jesus is Tempated](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_1.md)
-### 3/1: 
-### 3/8:
-### 3/15:
-### 3/22:
-### 3/29:
+### 3/1: Judaism and Passover UNDER CONSTRUCTION TODO: Find the `Mary and David Learn about the Sedar` book
+### 3/8: The Lord's Supper UNDER CONSTRUCTION
+### 3/15: The Garden of Gethsemane / Facing Uncertainty UNDER CONSTRUCTION
+### 3/22: Jesus Before Pilate / Turn Away from Teasing UNDER CONSTRUCTION
+### 3/29: Palm Sunday 
 ### 4/2: Holy Thursday
 ### 4/5: Easter
 ### 4/12: Easter Week 2 - On The Road to Emmaus
