@@ -30,7 +30,7 @@ In Jesus name we pray -  Amen
    - Do you think you need to take care of conscience, just like you have to take care of your body and mind? Why is that important?
      > Concrete reasons why its important to develop your conscience - it will help you interact better with other people, which will make yourself and the other person happier. 
 - **Materials / Supplies:** N/A
-- **Activities (step-by-step):** Play the Mercy Wheel again.
+- **Activities (step-by-step):** Play the `Mercy Wheel` again.
 - **Teacher notes / Tips:**  `Please do not teach there is a literal devil`. Some people will believe in one, and some people don't. But its a scary topic that could give children a complex, so its good to avoid this topic. If bullying or harm comes up during the conversation, please tell the parents and religious education.
 - **Passport Location:** 
 - **Resources / Books / Handouts:**   
