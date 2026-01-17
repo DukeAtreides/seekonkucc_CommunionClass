@@ -1,29 +1,44 @@
-## Traditional Works of Mercy and Sacrifice
+## Title: How We Show God's Love! Traditional Works of Mercy and Sacrifice
 
-### The Corporal Works of Mercy: 
-- To feed the hungry  
-- To give water to the thirsty 
-- To clothe the naked
-- To shelter the homeless 
-- To visit the sick 
-- To visit the imprisoned, or ransom the captive 
-- To bury the dead. 
+(Top Section - Use simple icons next to each)
 
-### The Spiritual Works of Mercy: 
-- To instruct the ignorant 
-- To counsel the doubtful 
-- To bear patiently those who wrong oneself 
-- To forgive offenses 
-- To comfort the afflicted
-- To pray for the living and the dead
-- To correct the sinner
+### Corporal Works of Mercy (Helping People with Physical Needs)
 
-### Additional Methodist Works of Mercy
-- Doing good
-- Visiting the sick and prisoners
-- Feeding and clothing people
-- Earning, saving, giving all one can
-- Opposition to slavery
+Feed the Hungry: Share your snacks, bring food to a food drive.
+Give Drink to the Thirsty: Make sure everyone has water, share your water bottle.
+Clothe the Naked: Donate old clothes, share a coat if someone is cold.
+Shelter the Homeless: Pray for people who don't have homes, help clean up a park.
+Visit the Sick: Draw a picture for someone who is sick, call a grandparent.
+Visit the Imprisoned: Pray for people who are far away or in difficult places.
+Comfort the Grieving: Be there for your friends who are sad about losing a pet or a loved one. Pray for those who are sad.
+
+### Spiritual Works of Mercy (Helping People with Their Hearts and Minds)
+
+Teach the Ignorant: Share what you know, help a friend with their homework.
+Counsel the Doubtful: Help a friend who is unsure, give them a hug.
+Comfort the Sorrowful: Listen when a friend is sad, offer kind words.
+Bear Wrongs Patiently: Be patient when someone is being annoying, try not to get mad.
+Forgive Offenses: Say "It's okay" when someone bumps into you, don't hold grudges.
+Admonish Sinners: (This is also tricky for 2nd graders. You could rephrase as "Help Friends Make Good Choices" and focus on gently reminding friends to be kind or share.) Gently remind friends to be kind.
+Pray for the Living and the Dead: Pray for your family, friends, and people you don't know.
+(Bottom Section)
+
+### In addition to the above, the Methodist Christians added these:
+- Earning, saving, giving all one can: Give a little money to charity each week
+- Opposition to slavery: Stand up for the rights of others.
+
+My Lenten Promise!
+
+This Lent, I promise to try my best to:
+
+One Act of Mercy I will do: _________________________
+One Sacrifice I will make: _________________________
+(Space for drawing or writing their promise)
+
+
+
+
+
 
 ### Sacrifice - Giving up something good for the benefit of someone else.
 - Doing the works of mercy means that we are making sacrifices of our time and money for others.
