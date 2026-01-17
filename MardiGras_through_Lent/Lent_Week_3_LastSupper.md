@@ -16,7 +16,7 @@ In Jesus name we pray -  Amen
 - **Opening (Say):**
   > Every Sunday, in our church, we have what is called `Communion`. During `Communion`, we receive bread dipped in juice. This is a way that we remember Jesus. It's something that most Christian churches do, sometimes every week or sometimes once a month. Jesus told us to remember him in this way during a `Passover` sedar. We will now read that story. One thing you need to know before we read this story is that one of Jesus` disciples, Judas Iscariot, made a deal with the leaders to betray Jesus.
 - **Scripture / Read:** Read: The Last Supper, The Children’s Illustrated Bible, page 264
-- Read: Names for Communion Handout
+- Read: [Names for Communion Handout](https://github.com/DukeAtreides/seekonkucc_CommunionClass/edit/main/Handouts/Names_for_Communion.md)
 - **Key questions / Discussion points:**  
    - Fill in questions
    - 
