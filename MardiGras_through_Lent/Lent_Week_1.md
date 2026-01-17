@@ -28,7 +28,8 @@ In Jesus name we pray -  Amen
    - How can you grow your conscience? Have the kids think of a few examples.
      > Practicing the Golden Rule, being patient, etc. 
    - Do you think you need to take care of conscience, just like you have to take care of your body and mind? Why is that important?
-     > Concrete reasons why its important to develop your conscience - it will help you interact better with other people, which will make yourself and the other person happier. 
+     > Concrete reasons why its important to develop your conscience - it will help you interact better with other people, which will make yourself and the other person happier.
+     > Listening to your conscience can help keep you safe and healthy, and it will help you make positive decisions.
 - **Materials / Supplies:** N/A
 - **Activities (step-by-step):** Play the `Mercy Wheel` again.
 - **Teacher notes / Tips:**  `Please **do not** teach there is a literal devil`.
