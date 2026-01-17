@@ -1,3 +1,6 @@
+Opening Prayer: pass offering basket, light candle (battery operated) Repeat Prayer:
+Dear God, We are thankful we are gathered here today. Be with us as we learn more about Jesus. When we share bread together we will think of our Jesus. Forgive us when we are not kind or helpful. Help me God to spread Your Love around In Jesus name we pray - Amen
+
 ## Lesson — The Sermon on the Mount
 - **Theme:** What Does God Require? The Golden Rule and Helping Others  
 - **Learning objectives:**  
@@ -33,3 +36,8 @@
 
 ---
 
+Closing Prayer   
+Dear God,  
+As we leave our gathering space today, 
+Please Bless all of us this week and keep us safe. 
+Amen 
