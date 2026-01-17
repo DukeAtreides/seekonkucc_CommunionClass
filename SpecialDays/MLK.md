@@ -1,5 +1,5 @@
 ## Lesson — Martin Luther King Jr. and Racism
-- **Theme:** Understanding Racism and Standing Up for Justice  
+- **Theme:** Standing up for Peace and Justice like Jesus taught us to do.  
 - **Learning objectives:**  
   - Understand the concept of racism and discrimination.  
   - Learn about Martin Luther King Jr. and his role in fighting unjust laws.  
