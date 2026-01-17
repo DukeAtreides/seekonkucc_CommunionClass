@@ -28,11 +28,9 @@ Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
   - 
 - **Passport Location:** 
 - **Resources / Books / Handouts:**   
-- **TODOs / follow-up:** None specified  
+- **TODOs / follow-up:** Make enough copies of the handout for each student.
 - **Assessment / Closing:** 
 - **Home connection / Family activity:** Encourage families to talk about a Lenten sacrifice or making new habits.
-
-
 
 
 
