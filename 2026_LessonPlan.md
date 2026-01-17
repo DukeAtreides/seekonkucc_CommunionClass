@@ -6,7 +6,7 @@
 ### 1/25: [Sermon On the Mount](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Sermon_On_The_Mount.md)
 ### 2/1: [Jesus calls his Disciples](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Jesus_Calls_Disciples.md)
 ### 2/8: [The Feeding of the 5000 / Social Mission & Action Presentation](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Feeding5000_SMA_Committee.md)
-### 2/15: [Sunday before Lent "Mardi Gras"] (https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/MardiGras_Sunday.md)
+### 2/15: [Sunday before Lent "Mardi Gras"](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/MardiGras_Sunday.md)
 ### 2/22 - 3/29: Lenten Season
 ### 4/2: Holy Thursday
 ### 4/5: Easter
