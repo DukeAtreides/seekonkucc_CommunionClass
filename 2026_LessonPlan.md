@@ -4,9 +4,9 @@
 ### 12/25/2025 - 1/11: Christmas Season
 ### 1/18: [Martin Luther King](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/SpecialDays/MLK.md)
 ### 1/25: [Sermon On the Mount / Kindness ](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Sermon_On_The_Mount.md)
-### 2/1: [Jesus calls his Disciples / Role Models](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Jesus_Calls_Disciples.md)
+### 2/1: [Jesus calls his Disciples / Role Models](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Jesus_Calls_Disciples.md)  TODO: Find the Name the Disciples Game
 ### 2/8: [The Feeding of the 5000 / Social Mission & Action Presentation](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Feeding5000_SMA_Committee.md)
-### 2/15: [Sunday Before Lent: Works of Mercy and Sacrifice](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/MardiGras_Sunday.md)
+### 2/15: [Sunday Before Lent: Works of Mercy and Sacrifice](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/MardiGras_Sunday.md) Todo: Materials for Mercy wheel
 ### 2/22: [Lent Week 1: Conscience / Peer Pressure / Jesus is Tempated](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_1.md)
 ### 3/1: Lent Week 2: Judaism and Passover UNDER CONSTRUCTION TODO: Find the `Mary and David Learn about the Sedar` book
 ### 3/8: Lent Week 3: The Lord's Supper UNDER CONSTRUCTION
