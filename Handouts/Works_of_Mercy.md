@@ -1,4 +1,4 @@
-## Traditional Works of Mercy
+## Traditional Works of Mercy and Sacrifice
 
 ### The Corporal Works of Mercy: 
 - To feed the hungry  
@@ -24,6 +24,12 @@
 - Feeding and clothing people
 - Earning, saving, giving all one can
 - Opposition to slavery
+
+### Sacrifice - Giving up something good for the benefit of someone else.
+- Doing the works of mercy means that we are making sacrifices of our time and money for others.
+- An example: When we have cookies, we might have to make a sacrifice and share them with our brother
+- Ashes are a symbol of sacrifice. The minister will put ashes on our foreheads on `Ash Wednesday`.
+- Many Christians think about a special sacrifice or make an effort to do something extra (sacrifice of time) during Lent.
 
 ### For More Reading
 Derived from primarily Matthew 25:35-40.
