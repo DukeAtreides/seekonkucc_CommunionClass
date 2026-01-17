@@ -31,7 +31,7 @@ In Jesus name we pray -  Amen
      > Concrete reasons why its important to develop your conscience - it will help you interact better with other people, which will make yourself and the other person happier. 
 - **Materials / Supplies:** N/A
 - **Activities (step-by-step):** Play the `Mercy Wheel` again.
-- **Teacher notes / Tips:**  `Please do not teach there is a literal devil`.
+- **Teacher notes / Tips:**  `Please **do not** teach there is a literal devil`.
 -  Some people will believe in one, and some people don't. But its a scary topic that could give children a complex, so its good to avoid this topic. If bullying or harm comes up during the conversation, please tell the parents and religious education.
 -  Also please avoid terms and discussion of things like `demon`, or things like `K Pop Demon Hunters`. This is so that kids don't get confused about serious topics with entertainment. The term `Bad angel` was chosen for a reason.
 - **Passport Location:** 
