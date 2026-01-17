@@ -18,13 +18,12 @@ Opening Prayer: pass offering basket, light candle (battery operated) Repeat Pra
   - How does critical thinking help us choose who to follow?  
 - **Materials / Supplies:** Game materials for “Names of the Disciples” (Disciples bingo or similar)  
 - **Activities (step-by-step):** Play “Names of the Disciples” game.  
-  - If time permits, read The Lord’s Prayer Illustrated by Tim Ladwig (check availability).  
 - **Teacher notes / Tips:**  
   - Encourage children to think about their own role models.  
   - Use the game to reinforce disciples’ names and roles.  
 - **Passport Location:** Sea of Galilee (where Simon Peter was fishing)
 - **Resources / Books / Handouts:** The Lord’s Prayer Illustrated (if available)  
-- **TODOs / follow-up:** Confirm availability of The Lord’s Prayer Illustrated book.  
+- **TODOs / follow-up:**
 - **Assessment / Closing:** Children share one way they can follow Jesus this week.  
 - **Home connection / Family activity:** Talk about role models and leadership at home.
 
