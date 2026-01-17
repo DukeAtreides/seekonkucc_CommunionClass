@@ -5,8 +5,8 @@ These are ways kids can practice the Works of Mercy.
 - It's also really important to graciously receive acts of mercy when someone performs one for you.
 
 ### For More Reading
-- Derived from primarily Matthew 25:35-40.
-- But also derive from the Gospel of Luke, Book of Isaiah, and the Book of Tobit.
+- These are traditional Works of Mercy, slightly modified for kids (eg, `comfort the grieving` is traditionally called `bury the dead`, and from the Methodist works, `stand up for the rights of others` was traditionally `opposition to slavery`).
+- Tradition derives these primarily Matthew 25:35-40, but also from the Gospel of Luke, Book of Isaiah, and the Book of Tobit.
 
 ### Corporal Works of Mercy (Helping People with Physical Needs)
 
@@ -32,11 +32,10 @@ These are ways kids can practice the Works of Mercy.
 - Earning, saving, giving all one can: Give a little money to charity or church each week.
 - Stand up for the rights of others: Learn how others are being mistreated, don't cheat people out of things.
 
-
 ### Sacrifice - Giving up something good for the benefit of someone else.
 - Doing the works of mercy means that we are making sacrifices of our time and money for others.
 - An example: When we have cookies, we might have to make a sacrifice and share them with our brother
-- Ashes are a symbol of sacrifice. The minister will put ashes on our foreheads on `Ash Wednesday`.
+- Ashes are a symbol of sacrifice. The minister will put ashes on our foreheads on `Ash Wednesday`, which is this coming Wednesday.
 - Many Christians think about a special sacrifice or make an effort to do something extra (sacrifice of time) during Lent.
 - Making a small sacrifice helps us practice being able to make important sacrifices when we get older.
 
