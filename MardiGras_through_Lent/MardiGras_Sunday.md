@@ -11,19 +11,21 @@ In Jesus name we pray -  Amen
 ## Lesson: Works of Mercy and Sacrifice
 - **Theme:** Works of Mercy and Sacrifice
 - **Learning objectives:**  
-  - Learn the Spiritual and Corporal Works of Mercy
-  - Learn about sacrifice
+  - By the end of class, students will be able to name at least three Corporal Works of Mercy and two Spiritual Works of Mercy, and commit to one simple Lenten sacrifice they can do at home.
 - **Context / Purpose:** This is a preparation for Lent and the importance of sacrifice.
-- **Scripture / Read:** The Centurion's Servant page 218-219
 - **Opening (Say):**
-  > We don’t have power like Jesus did to heal people. We need medicine and doctors. But we can help people who are hurting and in pain. Has anyone heard of the term empathy before? Empathy means the ability to understand and share the feelings of another.
-Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
-- Distribute and discuss the [Works of Mercy Handout](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/Works_of_Mercy.md)
+  > “Today we’re going to learn how we can help others even when we can’t do big miracles — we can show mercy and make small sacrifices.”
+- **Scripture / Read:** Distribute and discuss the [Works of Mercy Handout](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/Works_of_Mercy.md)
 - **Key questions / Discussion points:**  
    - What are ways you can do the works of mercy?
    - What are ways you can make sacrifices?
-- **Materials / Supplies:** 
-- **Activities (step-by-step):** 
+- **Materials / Supplies:** Paper plate, card board, long tooth pick
+- **Activities (step-by-step):** Make and Play the Mercy Wheel
+   - Make the Mercy wheel.
+   - Play it by spinning and role playing scenarios.
+   - The student will spin the wheel.
+   - The teacher will be the person in need according to the wheel.
+   - The student will then act out the act of mercy according to the wheel.
 - **Teacher notes / Tips:**  
 - **Passport Location:** 
 - **Resources / Books / Handouts:**   
