@@ -1,7 +1,5 @@
 ## Title: How Kids Can Show God's Love: Works of Mercy and Sacrifice
-- As you get older, the kinds of things you do to help people will change.
-These are ways kids can practice the Works of Mercy.
-
+- As you get older, the kinds of things you do to help people will change. These are ways kids can practice the Works of Mercy.
 - It's also really important to graciously receive acts of mercy when someone performs one for you.
 
 ### For More Reading
