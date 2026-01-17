@@ -1,5 +1,5 @@
 ## Winter/Spring 2026
-### This schedule is based on the liturgical calendar. Because it is so long, the Easter Season is broken up
+### This schedule is based on the liturgical calendar
 
 ### 12/25/2025 - 1/11: Christmas Season
 ### 1/18: [Martin Luther King](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/SpecialDays/MLK.md)
@@ -7,7 +7,12 @@
 ### 2/1: [Jesus calls his Disciples](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Jesus_Calls_Disciples.md)
 ### 2/8: [The Feeding of the 5000 / Social Mission & Action Presentation](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Feeding5000_SMA_Committee.md)
 ### 2/15: [Sunday before Lent "Mardi Gras"](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/MardiGras_Sunday.md)
-### 2/22 - 3/29: Lenten Season
+### 2/22: [Conscience / Peer Pressure / Jesus is Tempated](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_1.md)
+### 3/1: 
+### 3/8:
+### 3/15:
+### 3/22:
+### 3/29:
 ### 4/2: Holy Thursday
 ### 4/5: Easter
 ### 4/12: Easter Week 2 - On The Road to Emmaus
