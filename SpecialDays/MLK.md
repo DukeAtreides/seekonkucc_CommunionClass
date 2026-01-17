@@ -9,7 +9,7 @@ Use me God to spread Your Love around
 In Jesus name we pray -  Amen 
 
 
-## Lesson — Martin Luther King Jr. and Racism
+## Lesson: Martin Luther King Jr. and Racism
 - **Theme:** Standing up for Peace and Justice like Jesus taught us to do.  
 - **Learning objectives:**  
   - Understand the concept of racism and discrimination.  
