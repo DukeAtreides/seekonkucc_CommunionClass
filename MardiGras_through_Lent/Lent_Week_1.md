@@ -20,7 +20,7 @@ In Jesus name we pray -  Amen
 - **Scripture / Read:** The Temptations in the Wilderness, page 204.
   > Ask the children if they have any questions.
 - **Read**: `Facing Peer Pressure` by Golriz Golkar (World Book: Facing Life's Challenges).
-  > Ask the children if they know the term `conscience`.
+  - Ask the children if they know the term `conscience`.
 - **Key questions / Discussion points:**
    - Discuss `conscience`, the peer book, and the story of Jesus.
    - How do you know when you haven't listend to your conscience? How did that make you feel? How did that end up making others feel?
