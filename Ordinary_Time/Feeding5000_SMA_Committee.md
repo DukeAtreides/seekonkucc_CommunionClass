@@ -1,3 +1,14 @@
+Opening Prayer: pass offering basket, light candle (battery operated) 
+Repeat Prayer:  
+Dear God, 
+We are thankful we are gathered here today. 
+Be with us as we learn more about Jesus. 
+When we share bread together we will think of our Jesus. 
+Forgive us when we are not kind or helpful.
+Help me God to spread Your Love around 
+In Jesus name we pray -  Amen 
+
+
 ## Lesson  — The Feeding of the 5000 / Bread of Life / Social Mission & Action Committee
 - **Theme:** Bread and Wine as Symbols of Spiritual Nourishment; Nourishing Our Souls  
 - **Learning objectives:**  
@@ -23,3 +34,11 @@
 - **TODOs / follow-up:** 
 - **Assessment / Closing:** Quick circle-share: one way you can help someone this week.  
 - **Home connection / Family activity:** Encourage families to donate a nonperishable food item or discuss sharing at home.
+
+Closing Prayer   
+Dear God,  
+As we leave our gathering space today, 
+Please Bless all of us this week and keep us safe. 
+Amen 
+
+--
