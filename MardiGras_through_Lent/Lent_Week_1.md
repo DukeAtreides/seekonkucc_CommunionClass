@@ -36,7 +36,7 @@ In Jesus name we pray -  Amen
 - **Teacher notes / Tips:**  `Please do not teach there is a literal devil`. Some people will believe in one, and some people don't. But its a scary topic that could give children a complex.
 - **Passport Location:** 
 - **Resources / Books / Handouts:**   
-- **TODOs / follow-up:** 
+- **TODOs / follow-up:** Get the `Peer Pressure` book from the library
 - **Assessment / Closing:** 
 - **Home connection / Family activity:**
 
