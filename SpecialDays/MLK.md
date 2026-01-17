@@ -1,3 +1,14 @@
+Opening Prayer: pass offering basket, light candle (battery operated) 
+Repeat Prayer:  
+Dear God, 
+We are thankful we are gathered here today. 
+Be with us as we learn more about Jesus. 
+When we share bread together we will think of our Jesus. 
+Forgive us when we are not kind or helpful 
+Use me God to spread Your Love around 
+In Jesus name we pray -  Amen 
+
+
 ## Lesson — Martin Luther King Jr. and Racism
 - **Theme:** Standing up for Peace and Justice like Jesus taught us to do.  
 - **Learning objectives:**  
@@ -25,4 +36,11 @@
 - **Assessment / Closing:** Children share what they learned about fairness and standing up for others.  
 - **Home connection / Family activity:** Encourage families to talk about fairness and kindness at home.
 
----
+Closing Prayer   
+Dear God,  
+As we leave our gathering space today, 
+Please Bless all of us this week and keep us safe. 
+Amen 
+ 
+
+--
