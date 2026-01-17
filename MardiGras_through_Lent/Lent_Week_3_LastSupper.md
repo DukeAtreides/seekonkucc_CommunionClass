@@ -23,7 +23,7 @@ In Jesus name we pray -  Amen
 - **Materials / Supplies:** TBD
 - **Activities (step-by-step):** Make clay chalices
    - TBD
-- **Teacher notes / Tips:**  
+- **Teacher notes / Tips:** Quakers are an example of a Christian Church that does not have communion.
 - **Passport Location:** 
 - **Resources / Books / Handouts:**   
 - **TODOs / follow-up:** 
