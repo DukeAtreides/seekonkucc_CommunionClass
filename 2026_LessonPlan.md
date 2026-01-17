@@ -22,3 +22,5 @@
 ### 5/10: Easter Week 6 - Prepare for Communion Celebration
 ### 5/17: Easter Week 7 - Ascension Sunday - Communion Celebration
 ### 5/24: Pentecost (last day of Easter)
+
+## Errata: If Time, Read The Lord’s Prayer Illustrated by Tim Ladwig TODO: Do we have this book?
