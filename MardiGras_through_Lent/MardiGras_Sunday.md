@@ -19,13 +19,13 @@ In Jesus name we pray -  Amen
 - **Key questions / Discussion points:**  
    - What are ways you can do the works of mercy?
    - What are ways you can make sacrifices?
-- **Materials / Supplies:** Paper plate, card board, long tooth pick
-- **Activities (step-by-step):** Make and Play the Mercy Wheel
+- **Materials / Supplies:** Paper plate, card board, brass fastener, ruler
+- **Activities (step-by-step):** Make and Play the Mercy Wheel (`TODO`: These steps are under construction)
    - Make the Mercy wheel.
-   - First, take the paper plate. Divide into 8 regions.
+   - First, take the paper plate. Draw 8 regions.
    - Select 8 `Acts of Mercy`. Choose at least 3 `corporal`, 2 `spiritual`, and 1 `Methodist`.
    - Write each `Act of Mercy` in each region.
-   - Attach the spinner to the tooth pick.
+   - Attach the spinner to the brass fastener.
    - The teacher will punch out a small hole in the center and insert the wooden tooth pick.
    - `Play` it by spinning and role playing scenarios.
    - The student will spin the wheel.
