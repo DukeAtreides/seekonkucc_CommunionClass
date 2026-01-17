@@ -35,7 +35,7 @@ In Jesus name we pray -  Amen
    -  Some people will believe in one, and some people don't. But its a scary topic that could give children a complex, so its good to avoid this topic.
    -  During peer pressure conversations, if bullying or harm comes up during the conversation, please tell the parents and religious education.
 -  Also please avoid terms and discussion of things like `demon`, or things like `K Pop Demon Hunters`. This is so that kids don't get confused about serious topics with entertainment. The term `Bad angel` was chosen for a reason.
-- **Passport Location:** 
+- **Passport Location:** The Judean Wilderness (the desert)
 - **Resources / Books / Handouts:**   
 - **TODOs / follow-up:** Get the `Peer Pressure` book from the library
 - **Assessment / Closing:** 
