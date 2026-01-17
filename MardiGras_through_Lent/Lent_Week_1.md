@@ -19,6 +19,7 @@ In Jesus name we pray -  Amen
   > Today we're going to learn about what your conscience is, what peer pressure is, and what temptation is. When the Bible was written, people believed that a bad angel called the devil tempted people to do bad things. In the Bible story today, that imagery was used to tell a story. Today, we don't talk about bad angels. We believe that if you practice making good decisions, then it will be easier to make those good decisions when its tempting not to. `Lent` is 40 days (not counting Sundays) to represent the 40 days that Jesus spent in the desert.
 - **Scripture / Read:** The Temptations in the Wilderness, page 204.
   > Ask the children if they have any questions.
+  > Ask if anyone knows what temptation means.
 - **Read**: `Facing Peer Pressure` by Golriz Golkar (World Book: Facing Life's Challenges).
   - Ask the children if they know the term `conscience`.
 - **Key questions / Discussion points:**
