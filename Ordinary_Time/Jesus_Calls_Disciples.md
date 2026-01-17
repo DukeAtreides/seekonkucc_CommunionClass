@@ -28,8 +28,9 @@ Opening Prayer: pass offering basket, light candle (battery operated) Repeat Pra
 - **Assessment / Closing:** Children share one way they can follow Jesus this week.  
 - **Home connection / Family activity:** Talk about role models and leadership at home.
 
-
-
+Closing Prayer
+Dear God,
+As we leave our gathering space today, Please Bless all of us this week and keep us safe. Amen
 
 ---
 
