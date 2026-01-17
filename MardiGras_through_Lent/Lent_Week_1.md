@@ -22,12 +22,13 @@ In Jesus name we pray -  Amen
   > Ask the children if they have any questions.
 - **Read**: `Facing Peer Pressure` by Golriz Golkar (World Book: Facing Life's Challenges).
   > Ask the children if they know the term `conscience`.
-- Discuss `conscience`, the peer book, and the story of Jesus.
-- Discuss how your conscience gets formed the right way. eg: practicing the `Golden Rule`.
-- **Key questions / Discussion points:**  
+- **Key questions / Discussion points:**
+   - Discuss `conscience`, the peer book, and the story of Jesus.
    - How do you know when you haven't listend to your conscience? How did that make you feel? How did that end up making others feel?
    - Was there ever a time it was hard to do the right thing?
-   - How can you grow your conscience? Do you think you need to take care of conscience, just like you have to take care of your body and mind? Why is that important?
+   - How can you grow your conscience?
+     > Practicing the Golden Rule, being patient, etc. 
+   - Do you think you need to take care of conscience, just like you have to take care of your body and mind? Why is that important?
      > Concrete reasons why its important to develop your conscience - it will help you interact better with other people, which will make yourself and the other person happier. 
 - **Materials / Supplies:** 
 - **Activities (step-by-step):** 
