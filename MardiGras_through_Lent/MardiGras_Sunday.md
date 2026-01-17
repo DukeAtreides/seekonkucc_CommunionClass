@@ -20,7 +20,8 @@ In Jesus name we pray -  Amen
 Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
 - Distribute and discuss the (Works of Mercy Handout)[https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/Works_of_Mercy.md]
 - **Key questions / Discussion points:**  
-   - 
+   - What are ways you can do the works of mercy?
+   - What are ways you can make sacrifices?
 - **Materials / Supplies:** 
 - **Activities (step-by-step):** 
 - **Teacher notes / Tips:**  
