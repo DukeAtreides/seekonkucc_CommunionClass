@@ -11,7 +11,7 @@
 - **Key questions / Discussion points:**  
   - How does love nourish you?  
   - How do we share and care for others in our church?  
-- **Materials / Supplies:** The Children’s Illustrated Bible, materials for Social Mission & Action introduction  
+- **Materials / Supplies:** N/A
 - **Activities (step-by-step):**  Introduce Social Mission & Action
   - Show food pantry (porch)
   - Explain Doorways.  
@@ -19,7 +19,7 @@
   - Use practical examples children understand (sharing food at home).  
   - Keep discussion age-appropriate regarding hunger and help.  
 - **Passport Location:** Food Pantry  
-- **Resources / Books / Handouts:** The Children’s Illustrated Bible  
+- **Resources / Books / Handouts:**   
 - **TODOs / follow-up:** 
 - **Assessment / Closing:** Quick circle-share: one way you can help someone this week.  
 - **Home connection / Family activity:** Encourage families to donate a nonperishable food item or discuss sharing at home.
