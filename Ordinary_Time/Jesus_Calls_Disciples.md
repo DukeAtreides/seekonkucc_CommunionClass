@@ -1,3 +1,5 @@
+Opening Prayer: pass offering basket, light candle (battery operated) Repeat Prayer: Dear God, We are thankful we are gathered here today. Be with us as we learn more about Jesus. When we share bread together we will think of our Jesus. Forgive us when we are not kind or helpful. Help me God to spread Your Love around In Jesus name we pray - Amen
+
 ## Lesson — The Disciples, Role Models, Being a Follower, Being a Leader
 - **Theme:** Role Models, Following Jesus, Leadership  
 - **Learning objectives:**  
@@ -26,4 +28,8 @@
 - **Assessment / Closing:** Children share one way they can follow Jesus this week.  
 - **Home connection / Family activity:** Talk about role models and leadership at home.
 
+
+
+
 ---
+
