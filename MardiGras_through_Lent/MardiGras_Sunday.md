@@ -25,7 +25,6 @@ Ways we can show empathy are through the Corporal and Spiritual works of Mercy.
 - **Materials / Supplies:** 
 - **Activities (step-by-step):** 
 - **Teacher notes / Tips:**  
-  - 
 - **Passport Location:** 
 - **Resources / Books / Handouts:**   
 - **TODOs / follow-up:** Make enough copies of the handout for each student.
