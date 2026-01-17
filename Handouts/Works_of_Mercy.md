@@ -32,5 +32,5 @@
 - Many Christians think about a special sacrifice or make an effort to do something extra (sacrifice of time) during Lent.
 
 ### For More Reading
-Derived from primarily Matthew 25:35-40.
-But also derive from the Gospel of Luke, Book of Isaiah, and the Book of Tobit.
+- Derived from primarily Matthew 25:35-40.
+- But also derive from the Gospel of Luke, Book of Isaiah, and the Book of Tobit.
