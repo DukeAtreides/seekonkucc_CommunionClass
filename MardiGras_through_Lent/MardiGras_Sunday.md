@@ -32,10 +32,10 @@ In Jesus name we pray -  Amen
    - The teacher will be the person in need according to the wheel.
    - The student will then act out the act of mercy according to the wheel.
 - **Teacher notes / Tips:**  
-- **Passport Location:** 
+- **Passport Location:** New Orleans (explain `Mardi Gras` before leaving)
 - **Resources / Books / Handouts:**   
 - **TODOs / follow-up:** Make enough copies of the handout for each student.
-- **Assessment / Closing:** Before we enter into Lent though, we have a big celebration called `Mardi Gras`. We'll be having that celebration in the hall after class!!!
+- **Assessment / Closing:** Before we enter into Lent though, we have a big celebration called `Mardi Gras`. We'll be having that celebration in the hall after class!!! A place known for Mardi Gras is New Orleans Louisana, where they eat `cajun` like gumbo.
 - **Home connection / Family activity:** Encourage families to talk about a Lenten sacrifice or making new habits.
 
 
