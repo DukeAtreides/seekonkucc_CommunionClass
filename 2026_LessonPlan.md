@@ -9,7 +9,7 @@
 ### 2/15: [Sunday Before Lent: Works of Mercy and Sacrifice](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/MardiGras_Sunday.md) Todo: Materials for Mercy wheel
 ### 2/22: [Lent Week 1: Conscience / Peer Pressure / Jesus is Tempated](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_1.md)
 ### 3/1: UNDER CONSTRUCTION Lent Week 2: Judaism and Passover UNDER CONSTRUCTION TODO: Find the `Mary and David Learn about the Sedar` book
-### 3/8: UNDER CONSTRUCTION Lent Week 3: [The Lord's Supper](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_3_LastSupper.md)
+### 3/8: UNDER CONSTRUCTION [Lent Week 3: The Lord's Supper](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_3_LastSupper.md)
 ### 3/15: UNDER CONSTRUCTION Lent Week 4: The Garden of Gethsemane / Facing Uncertainty TODO: Find tissue paper, contact paper, construction paper for stained glass
 ### 3/22: Lent Week 5: Jesus Before Pilate / Turn Away from Teasing UNDER CONSTRUCTION
 ### 3/29: Lent Week 6: Palm Sunday 
