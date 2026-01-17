@@ -30,7 +30,7 @@ In Jesus name we pray -  Amen
 - **Passport Location:** 
 - **Resources / Books / Handouts:**   
 - **TODOs / follow-up:** Make enough copies of the handout for each student.
-- **Assessment / Closing:** 
+- **Assessment / Closing:** Before we enter into Lent though, we have a big celebration called `Mardi Gras`. We'll be having that celebration in the hall after class!!!
 - **Home connection / Family activity:** Encourage families to talk about a Lenten sacrifice or making new habits.
 
 
