@@ -8,8 +8,7 @@ Forgive us when we are not kind or helpful.
 Help me God to spread Your Love around 
 In Jesus name we pray -  Amen 
 
-## Lesson: 
-- **Theme:** 
+## Lesson: Jesus Before Pilate / Bullying
 - **Learning objectives:**  
   - Learn about not teasing others
   - Learn about what to do when being teased
@@ -25,7 +24,13 @@ In Jesus name we pray -  Amen
    - Discuss how it can be harmful to judge other people, especially when you don't know anything about that.
 - **Materials / Supplies:** Paper, markers
 - **Activities (step-by-step):** Do the activities in the back of the `Turn Away From Teasing` book. 
-- **Teacher notes / Tips:**  
+- **Teacher notes / Tips:**
+  > "And I was 'round when Jesus Christ
+  > Had his moment of doubt and pain
+  > Made damn sure that Pilate
+  > Washed his hands and sealed his fate"
+- If you don't know the song, you should look it up. It's a classic.
+Washed his hands and sealed his fate
 - **Passport Location:** The `Praetorium`
 - **TODOs / follow-up:** 
 - **Assessment / Closing:** 
