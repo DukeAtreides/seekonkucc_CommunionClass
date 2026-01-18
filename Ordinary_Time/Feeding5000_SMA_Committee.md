@@ -27,6 +27,7 @@ In Jesus name we pray -  Amen
   - Show food pantry (porch)
   - Explain Doorways.
   - Explain UCAP
+  - Explain our work with Haiti
 - **Teacher notes / Tips:**  
   - Use practical examples children understand (sharing food at home).  
   - Keep discussion age-appropriate regarding hunger and help.  
