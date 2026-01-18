@@ -18,8 +18,8 @@ In Jesus name we pray -  Amen
 - **Scripture / Read:** Read: The Last Supper, The Children’s Illustrated Bible, page 264
 - Read: [Names for Communion Handout](https://github.com/DukeAtreides/seekonkucc_CommunionClass/edit/main/Handouts/Names_for_Communion.md)
 - **Key questions / Discussion points:**  
-   - Fill in questions
-   - 
+   - Why do we remember Jesus? What did he teach us?
+     > The importance of the Golden Rule, forgiveness, compassion, empathy. Etc.
 - **Materials / Supplies:** TBD
 - **Activities (step-by-step):** Make clay chalices
    - TBD
