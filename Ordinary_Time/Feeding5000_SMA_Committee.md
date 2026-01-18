@@ -25,7 +25,8 @@ In Jesus name we pray -  Amen
 - **Materials / Supplies:** N/A
 - **Activities (step-by-step):**  Introduce Social Mission & Action
   - Show food pantry (porch)
-  - Explain Doorways.  
+  - Explain Doorways.
+  - Explain UCAP
 - **Teacher notes / Tips:**  
   - Use practical examples children understand (sharing food at home).  
   - Keep discussion age-appropriate regarding hunger and help.  
