@@ -14,7 +14,9 @@ From the Seekonk Congregational website:
   - It recalls the Christian practice of giving thanks to God for creation and redemption.
 
 ### The Lord's Supper: 
-  - Recalls its institution by Jesus at the `Passover` meal. 
+  - The `Lord` is another name for God and also for Jesus.
+  - Recalls its institution by Jesus at the `Passover` meal.
+  - A piece of furniture that is central to the Lord's Supper is the `Lord's table`, also known as the `altar`, `altar table`, or `communion table`.
 
 ### Breaking of Bread: 
   - Jesus broke bread at the `Last Supper`, and then blessed it.
@@ -26,3 +28,7 @@ From the Seekonk Congregational website:
   - "May You Become What You Eat" is an ancient Christian saying. Just as we symbolically eat Jesus' body, we hope to be transformed into the `Body of Christ` - a people of compassion, hope, joy, and gratitude (thanksgiving).
 
 ### Do you see how the words connect?
+
+### Sharing!
+ > Note: This is taken from a Christian education handout. Numbers were updated to reflect 2026.
+ > Sharing is a part of communion as we say NO to all that destroys individuals and the world, and say YES to what is compassionate, creative, and good. To gather around the `Lord's table` we care deeply about each other and promise to support each other in good times and bad. We also promise to care for God's creatures and to improve a world where [1 in 5 children now lives in extreme poverty](https://www.worldbank.org/en/topic/poverty/publication/child-poverty-global-regional-and-select-national-trends). 
