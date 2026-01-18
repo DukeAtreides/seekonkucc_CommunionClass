@@ -8,7 +8,7 @@ Forgive us when we are not kind or helpful.
 Help me God to spread Your Love around 
 In Jesus name we pray -  Amen 
 
-## Lesson: 
+## Lesson: The Garden of Gethsemane and Uncertainty
 - **Theme:** Dealing with uncertainty.
 - **Learning objectives:**  
   - Learning strategies to deal with uncertainty.
