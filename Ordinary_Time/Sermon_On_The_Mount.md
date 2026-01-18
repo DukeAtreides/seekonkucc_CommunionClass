@@ -20,6 +20,7 @@ Dear God, We are thankful we are gathered here today. Be with us as we learn mor
 
 - **Activities (step-by-step):**  Communion Stoles
 - Materials / Supplies: Stole fabric, paint, stamps (heart, bread, chalice, dove), vinyl tablecloths, paper bowls
+  > Tell the kids, these stoles will be on display for their communion celebration in May.
 - Play music while creating stoles.  
 - Decorate stoles with symbols (heart, bread, chalice, dove) using paint stamps.
 - Allow stoles to dry until next week.
@@ -30,7 +31,7 @@ Dear God, We are thankful we are gathered here today. Be with us as we learn mor
   - Emphasize the importance of kindness and generosity.  
 - **Passport Location:** Not specified  
 - **Resources / Books / Handouts:** The `Be Kind` Book.
-- **TODOs / follow-up:** 
+- **TODOs / follow-up:** Store the stoles, and display them for the commmunion ceremony. 
 - **Assessment / Closing:** Review the Golden Rule and how children can practice it.  
 - **Home connection / Family activity:** Encourage children to practice the Golden Rule at home.
 
