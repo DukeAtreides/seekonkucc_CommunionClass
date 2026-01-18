@@ -31,7 +31,8 @@ In Jesus name we pray -  Amen
    - The student will spin the wheel.
    - The teacher will be the person in need according to the wheel.
    - The student will then act out the act of mercy according to the wheel.
-- **Teacher notes / Tips:**  
+- **Teacher notes / Tips:**
+  > If the activity isn't completed today, don't worry, it's on the agenda for next week too.
 - **Passport Location:** New Orleans (explain `Mardi Gras` before leaving)
 - **Resources / Books / Handouts:**   
 - **TODOs / follow-up:**
