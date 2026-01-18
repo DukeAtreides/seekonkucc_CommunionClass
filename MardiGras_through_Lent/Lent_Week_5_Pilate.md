@@ -23,7 +23,8 @@ In Jesus name we pray -  Amen
    - Discuss how teasing and bullying feels.
    - Discuss how it can be harmful to judge other people, especially when you don't know anything about that.
 - **Materials / Supplies:** Paper, markers
-- **Activities (step-by-step):** Do the activities in the back of the `Turn Away From Teasing` book. 
+- **Activities (step-by-step):** Do the activities in the back of the `Turn Away From Teasing` book.
+  - If you have free time, play the Mercy Wheel.
 - **Teacher notes / Tips:**
   > "And I was 'round when Jesus Christ
   > Had his moment of doubt and pain
