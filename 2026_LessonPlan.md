@@ -15,7 +15,7 @@
 ### 3/29: Lent Week 6: Palm Sunday 
 ### 4/2: Holy Thursday
 ### 4/5: Easter
-### 4/12: Easter Week 2 - On The Road to Emmaus and the Ascension
+### 4/12: Easter Week 2 - On The Road to Emmaus and the Ascension TODO: Find stuff for communion banners/posters
 ### 4/19: Easter Week 3 - The Early Church and Pentecost
 ### 4/26: Easter Week 4 - The Bible
 ### 5/3: Easter Week 5 - The Lord's Prayer and the 5 Finger Prayer
