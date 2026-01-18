@@ -23,7 +23,7 @@ In Jesus name we pray -  Amen
 - **Read**: `Facing Peer Pressure` by Golriz Golkar (World Book: Facing Life's Challenges).
   - Ask the children if they know the term `conscience`.
 - **Key questions / Discussion points:**
-   - Discuss `conscience`, the peer book, and the story of Jesus.
+   - Discuss `conscience`, the peer pressure book, and the story of Jesus.
    - How do you know when you haven't listend to your conscience? How did that make you feel? How did that end up making others feel?
    - Was there ever a time it was hard to do the right thing? What are 2 ways to resist peer pressure?
    - How can you grow your conscience? Have the kids think of a few examples.
@@ -31,6 +31,7 @@ In Jesus name we pray -  Amen
    - Do you think you need to take care of conscience, just like you have to take care of your body and mind? Why is that important?
      > Concrete reasons why its important to develop your conscience - it will help you interact better with other people, which will make yourself and the other person happier.
      > Listening to your conscience can help keep you safe and healthy, and it will help you make positive decisions.
+  - Do the `Try This` section in the `Goals and Tools` section (page 22) of `Facing Peer Pressure`.
 - **Materials / Supplies:** N/A
 - **Activities (step-by-step):** Play the `Mercy Wheel` again.
 - **Teacher notes / Tips:**  `Please **do not** teach there is a literal devil`.
