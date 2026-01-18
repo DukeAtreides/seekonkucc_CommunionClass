@@ -29,7 +29,7 @@ In Jesus name we pray -  Amen
   > Had his moment of doubt and pain
   > Made damn sure that Pilate
   > Washed his hands and sealed his fate"
-- If you don't know the song, you should look it up. It's a classic.
+  - If you don't know the song, you should look it up. It's a classic.
 Washed his hands and sealed his fate
 - **Passport Location:** The `Praetorium`
 - **TODOs / follow-up:** 
