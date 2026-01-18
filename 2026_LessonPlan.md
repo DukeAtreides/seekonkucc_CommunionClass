@@ -10,7 +10,7 @@
 ### 2/22: [Lent Week 1: Conscience / Peer Pressure / Jesus is Tempted](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_1.md)
 ### 3/1: UNDER CONSTRUCTION Lent Week 2: Judaism and Passover UNDER CONSTRUCTION TODO: Find the `Mary and David Learn about the Sedar` book
 ### 3/8: [Lent Week 3: The Lord's Supper](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_3_LastSupper.md)
-### 3/15: Lent Week 4: The Garden of Gethsemane / Facing Uncertainty 
+### 3/15: [Lent Week 4: The Garden of Gethsemane / Facing Uncertainty](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_4_Gethsemane.md)
 ### 3/22: [Lent Week 5: Jesus Before Pilate / Turn Away from Teasing](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_5_Pilate.md)
 ### 3/29: Lent Week 6: Palm Sunday 
 ### 4/2: Holy Thursday
