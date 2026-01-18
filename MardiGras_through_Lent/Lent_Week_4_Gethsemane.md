@@ -23,6 +23,7 @@ In Jesus name we pray -  Amen
    - What are ways you can handle uncertainty?
 - **Materials / Supplies:** Paper, markers, pens, etc.
 - **Activities (step-by-step):** Do the `Grow with Goals` section of `Facing Uncertainty`.
+   - If you have free time, play the Mercy Wheel.
 - **Teacher notes / Tips:**  * Don't * make the kids share their uncertainty list, unless they volunteer to share. Please share some of your own examples though. :)
 - **Passport Location:** Garden of Gethsemane
 - **Resources / Books / Handouts:**   
