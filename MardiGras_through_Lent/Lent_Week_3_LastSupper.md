@@ -16,7 +16,7 @@ In Jesus name we pray -  Amen
 - **Opening (Say):**
   > Every Sunday, in our church, we have what is called `Communion`. During `Communion`, we receive bread dipped in juice. The bread and juice represent the body and blood of Jesus. This is a way that we remember Jesus. It's something that most Christian churches do, sometimes every week or sometimes once a month. Some churches use wine. Jesus told us to remember him in this way during the last `Passover` sedar he celebrated before he was crucified. We will now read that story. One thing you need to know before we read this story is that one of Jesus` disciples, Judas Iscariot, made a deal with the leaders to betray Jesus. The other thing you need to know is that we use juice, but Jesus used wine.
 - **Scripture / Read:** Read: The Last Supper, The Children’s Illustrated Bible, page 264
-- Read: [Names for Communion Handout](https://github.com/DukeAtreides/seekonkucc_CommunionClass/edit/main/Handouts/Names_for_Communion.md)
+- Read amd Discuss: [Names for Communion Handout](https://github.com/DukeAtreides/seekonkucc_CommunionClass/edit/main/Handouts/Names_for_Communion.md)
 - **Key questions / Discussion points:**  
    - Why do we remember Jesus? What did he teach us?
      > The importance of the Golden Rule, forgiveness, compassion, empathy. Etc.
