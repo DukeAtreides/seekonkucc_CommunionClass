@@ -1,7 +1,7 @@
 ## Winter/Spring 2026
 ### This schedule is based on the liturgical calendar
 
-### 12/25/2025 - 1/11: Christmas Season: [Epiphany and Baptism of Jesus](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Christmas/Temporary.md)
+### 12/25/2025 - 1/11: [Christmas Season: Epiphany and Baptism of Jesus](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Christmas/Temporary.md)
 ### 1/18: [Martin Luther King](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/SpecialDays/MLK.md)
 ### 1/25: [Sermon On the Mount / Kindness ](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Sermon_On_The_Mount.md)
 ### 2/1: [Jesus calls his Disciples / Role Models](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Jesus_Calls_Disciples.md)  TODO: Find the Name the Disciples Game
