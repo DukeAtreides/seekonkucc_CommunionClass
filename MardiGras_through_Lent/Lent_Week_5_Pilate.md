@@ -13,18 +13,17 @@ In Jesus name we pray -  Amen
 - **Learning objectives:**  
   - Fill in concrete objectives (eg, students will be able to tell you 3 out of 14 works of mercy). 
 - **Context / Purpose:** 
-- **Opening (Say):**
-  > Intro to whatever we're doing this day.
-- **Scripture / Read:** 
+- **Opening (Say):** 
+  > In Jesus' time, the Roman Empire ruled many lands, including the land of Judea, where Jesus lived. The Roman official in charge was named Pontius Pilate. We know from other books of the time, that Pontius Pilate was espcially mean and cruel. In the story we are reading today, Pontius Pilate is judging Jesus at a place called the `Praetorium`. He will ultimately sentence him to be crucified.
+- **Scripture / Read:** Read: Jesus Before Pilate,The Children’s Illustrated Bible, page 272 -273
+- ** Read: **  `Turn Away from Teasing. By Gill Hasson. A Kids Can Cope book.`
 - **Key questions / Discussion points:**  
-   - Fill in questions
-   - Define pertinent key words like `sacrifice`, `Golden Rule`, etc. 
-- **Materials / Supplies:** 
-- **Activities (step-by-step):** 
-   - Delineate activity steps
+   - Discuss how teasing and bullying feels.
+   - Discuss how it can be harmful to judge other people, especially when you don't know anything about that.
+- **Materials / Supplies:** Paper, markers
+- **Activities (step-by-step):** Do the activities in the back of the `Turn Away From Teasing` book. 
 - **Teacher notes / Tips:**  
-- **Passport Location:** 
-- **Resources / Books / Handouts:**   
+- **Passport Location:** The `Praetorium`
 - **TODOs / follow-up:** 
 - **Assessment / Closing:** 
 - **Home connection / Family activity:**
