@@ -30,7 +30,6 @@ In Jesus name we pray -  Amen
   > Made damn sure that Pilate
   > Washed his hands and sealed his fate"
   - If you don't know the song, you should look it up. It's a classic.
-Washed his hands and sealed his fate
 - **Passport Location:** The `Praetorium`
 - **TODOs / follow-up:** 
 - **Assessment / Closing:** 
