@@ -18,7 +18,7 @@ In Jesus name we pray -  Amen
 - **Opening (Say):** 
   > In Jesus' time, the Roman Empire ruled many lands, including the land of Judea, where Jesus lived. The Roman official in charge was named Pontius Pilate. We know from other books of the time, that Pontius Pilate was espcially mean and cruel. In the story we are reading today, Pontius Pilate is judging Jesus at a place called the `Praetorium`. He will ultimately sentence him to be crucified.
 - **Scripture / Read:** Read: Jesus Before Pilate,The Children’s Illustrated Bible, page 272 -273
-- ** Read: **  `Turn Away from Teasing. By Gill Hasson. A Kids Can Cope book.`
+- ** Read: **  `Turn Away from Teasing. By Gill Hasson. A Kids Can Cope book.` (available from Seekonk Library)
 - **Key questions / Discussion points:**  
    - Discuss how teasing and bullying feels.
    - Discuss how it can be harmful to judge other people, especially when you don't know anything about that.
