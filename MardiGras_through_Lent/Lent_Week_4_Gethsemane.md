@@ -24,7 +24,7 @@ In Jesus name we pray -  Amen
 - **Materials / Supplies:** Paper, markers, pens, etc.
 - **Activities (step-by-step):** Do the `Grow with Goals` section of `Facing Uncertainty`.
 - **Teacher notes / Tips:**  * Don't * make the kids share their uncertainty list, unless they volunteer to share. Please share some of your own examples though. :)
-- **Passport Location:** 
+- **Passport Location:** Garden of Gethsemane
 - **Resources / Books / Handouts:**   
 - **TODOs / follow-up:** 
 - **Assessment / Closing:** 
