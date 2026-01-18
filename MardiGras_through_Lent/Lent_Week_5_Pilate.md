@@ -11,8 +11,11 @@ In Jesus name we pray -  Amen
 ## Lesson: 
 - **Theme:** 
 - **Learning objectives:**  
-  - Fill in concrete objectives (eg, students will be able to tell you 3 out of 14 works of mercy). 
-- **Context / Purpose:** 
+  - Learn about not teasing others
+  - Learn about what to do when being teased
+  - Learn about standing up for others
+  - Learn about not judging others, especially with incomplete information.
+- **Context / Purpose:** Jesus' trial is used as a starting point to discuss the kinds of "trials" kids go through at home with siblings and in school.
 - **Opening (Say):** 
   > In Jesus' time, the Roman Empire ruled many lands, including the land of Judea, where Jesus lived. The Roman official in charge was named Pontius Pilate. We know from other books of the time, that Pontius Pilate was espcially mean and cruel. In the story we are reading today, Pontius Pilate is judging Jesus at a place called the `Praetorium`. He will ultimately sentence him to be crucified.
 - **Scripture / Read:** Read: Jesus Before Pilate,The Children’s Illustrated Bible, page 272 -273
