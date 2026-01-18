@@ -11,14 +11,14 @@
 ### 3/1: UNDER CONSTRUCTION Lent Week 2: Judaism and Passover UNDER CONSTRUCTION TODO: Find the `Mary and David Learn about the Sedar` book
 ### 3/8: [Lent Week 3: The Lord's Supper](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_3_LastSupper.md)
 ### 3/15: UNDER CONSTRUCTION Lent Week 4: The Garden of Gethsemane / Facing Uncertainty TODO: Find tissue paper, contact paper, construction paper for stained glass
-### 3/22: UNDER CONSTRUCTION Lent Week 5: Jesus Before Pilate / Turn Away from Teasing TODO: Find stuff for prayer beads
+### 3/22: UNDER CONSTRUCTION Lent Week 5: Jesus Before Pilate / Turn Away from Teasing
 ### 3/29: Lent Week 6: Palm Sunday 
 ### 4/2: Holy Thursday
 ### 4/5: Easter
 ### 4/12: Easter Week 2 - On The Road to Emmaus and the Ascension TODO: Find stuff for communion banners/posters
 ### 4/19: Easter Week 3 - The Early Church and Pentecost
 ### 4/26: Easter Week 4 - The Bible
-### 5/3: Easter Week 5 - The Lord's Prayer and the 5 Finger Prayer
+### 5/3: Easter Week 5 - The Lord's Prayer and the 5 Finger Prayer  TODO: Find stuff for prayer beads
 ### 5/10: Easter Week 6 - Prepare for Communion Celebration
 ### 5/17: Easter Week 7 - Ascension Sunday - Communion Celebration
 ### 5/24: Pentecost (last day of Easter)
