@@ -8,19 +8,19 @@ Opening Prayer: pass offering basket, light candle (battery operated) Repeat Pra
   - Reflect on how to be a positive role model and leader.  
 - **Context / Purpose:** To explore discipleship and leadership through Jesus’ example.  
 - **Opening (Say):**
-  > "Today, we will discuss leadership, role models, and thinking about who we trust and follow.
-  > We will also think about what it means to be a leader."
+  > "Today, we will discuss leadership, role models, and thinking about who we trust and follow. We will also think about what it means to be a leader. We're going to read a story about when people decided to follow Jesus. When they followed Jesus, they were called `disciples`. Later, after Jesus' rose from the dead, they would become known as the `12 Apostles`.
 -  **Scripture / Read:** Jesus Calls His Disciples, The Children’s Illustrated Bible, p.210  
 - **Key questions / Discussion points:**  
   - What does it mean to follow Jesus?  
-  - Who are your role models?  
+  - Who are your role models? Why?
   - How can you be a good role model for others?  
   - How does critical thinking help us choose who to follow?  
 - **Materials / Supplies:** Game materials for “Names of the Disciples” (Disciples bingo or similar)  
 - **Activities (step-by-step):** Play “Names of the Disciples” game.  
 - **Teacher notes / Tips:**  
   - Encourage children to think about their own role models.  
-  - Use the game to reinforce disciples’ names and roles.  
+  - Use the game to reinforce disciples’ names and roles.
+  - If kids name a famous person as a role model, try to really press them as to why, and see if there's better alternative. Eg: Taylor Swift or a football player.  
 - **Passport Location:** Sea of Galilee (where Simon Peter was fishing)
 - **Resources / Books / Handouts:** The Lord’s Prayer Illustrated (if available)  
 - **TODOs / follow-up:**
