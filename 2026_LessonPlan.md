@@ -4,7 +4,7 @@
 ### 12/25/2025 - 1/11: [Christmas Season: Epiphany and Baptism of Jesus](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Christmas/Temporary.md)
 ### 1/18: [Martin Luther King](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/SpecialDays/MLK.md)
 ### 1/25: [Sermon On the Mount / Kindness ](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Sermon_On_The_Mount.md)
-### 2/1: [Jesus calls his Disciples / Role Models](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Jesus_Calls_Disciples.md)  TODO: Need an activity
+### 2/1: [Jesus calls his Disciples / Role Models](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Jesus_Calls_Disciples.md)
 ### 2/8: [The Feeding of the 5000 / Social Mission & Action Presentation](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Feeding5000_SMA_Committee.md)
 ### 2/15: [Sunday Before Lent: Works of Mercy and Sacrifice](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/MardiGras_Sunday.md) Todo: Materials for Mercy wheel
 ### 2/22: [Lent Week 1: Jesus is Tempted / Conscience / Peer Pressure](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_1.md)
