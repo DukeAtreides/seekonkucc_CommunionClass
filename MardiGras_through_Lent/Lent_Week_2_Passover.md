@@ -22,18 +22,21 @@ In Jesus name we pray -  Amen
 - **Key questions / Discussion points:**  
    - Is there anything you didn't understand?
    - Christians don't celebrate Passover. We celebrate Easter at around the same time.  How are traditions that other people celebrate similar to what we celebrate? How are they different?
-   - Did anyone notice them talking about memories and remembering? 
-   - How do traditions keep our memories alive of past times? Do you have family traditions at Easter or Christmas. Do you hear older family members telling stories of those holidays that happened a long time ago?
-   - Why are family traditions important?
-- **Materials / Supplies:** 
-- **Activities (step-by-step):** 
-   - Delineate activity steps
-- **Teacher notes / Tips:**  
+   - Did anyone notice them talking about memories and remembering?
+   - How do traditions keep our memories alive of past times? 
+   - Why are family traditions and remembering important?
+- **Materials / Supplies:** Paper, markers
+- **Activities (step-by-step):** Family Traditions
+   - Write down 3 things you learned about Passover and the Sedar.
+   - Write down some family traditions you have, or holidays you celebrate, and why are they important?
+   - Have you heard stories of traditions your parents did? If so, write them down too.
+   - Share and discuss.
+- **Teacher notes / Tips:**  I'm estimating about 15 minutes for the movies. 15-20 minutes for the discussion and activity. And then 10-15 minutes of free time.
 - **Passport Location:** 
 - **Resources / Books / Handouts:**   
 - **TODOs / follow-up:** 
 - **Assessment / Closing:** 
-- **Home connection / Family activity:** Ask your family about your family traditions.
+- **Home connection / Family activity:** Talk as a family about traditions and about family members who have died.
 
 
 Closing Prayer   
