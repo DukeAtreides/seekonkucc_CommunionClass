@@ -8,7 +8,7 @@
 ### 2/8: [The Feeding of the 5000 / Social Mission & Action Presentation](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Feeding5000_SMA_Committee.md)
 ### 2/15: [Sunday Before Lent: Works of Mercy and Sacrifice](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/MardiGras_Sunday.md) Todo: Materials for Mercy wheel
 ### 2/22: [Lent Week 1: Jesus is Tempted / Conscience / Peer Pressure](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_1.md)
-### 3/1: [Lent Week 2: Judaism and Passover / Family Traditions / Remembering the Past](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_2_Passover.md)
+### 3/1: [Lent Week 2: Judaism and Passover / Family Traditions / Remembering the Past](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_2_Passover.md) TODO: can the kids bring in a holiday picture and discuss something that usually do? Or bring in a picture of deceased relative and talk about them. Something that connects them to the past.
 ### 3/8: [Lent Week 3: The Lord's Supper](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_3_LastSupper.md)
 ### 3/15: [Lent Week 4: The Garden of Gethsemane / Facing Uncertainty](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_4_Gethsemane.md)
 ### 3/22: [Lent Week 5: Jesus Before Pilate / Turn Away from Teasing](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_5_Pilate.md)
