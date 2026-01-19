@@ -1,6 +1,6 @@
 ## TODO: This was done before I switched to use Github. So these need to be cleaned up in the new format.
 
-
+Epiphany
 Read: The Wise Men,The Children’s Illustrated Bible, page 196
 Epiphany Project: 
 Finger Paint Picture ‘May the Christmas Star Lead you to Jesus, The Light of the World’
@@ -10,7 +10,7 @@ We discussed what it means to be the light of the world: Compassion, the Golden 
 
 
 
-Lesson 20 1/11 : John Baptist / Baptism
+ 1/11 : John Baptist / Baptism
     
 Theme:    BAPTISM: John the Baptist and Sacraments
 *** Hang up photos and dove worksheet on bulletin board
