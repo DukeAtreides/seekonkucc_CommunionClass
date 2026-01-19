@@ -16,7 +16,7 @@ Opening Prayer: pass offering basket, light candle (battery operated) Repeat Pra
   - How can you be a good role model for others?  
   - How does critical thinking help us choose who to follow?  
 - **Materials / Supplies:** Game materials for “Names of the Disciples” (Disciples bingo or similar)  
-- **Activities (step-by-step):** Play “Names of the Disciples” game.  
+- **Activities (step-by-step):** TODO
 - **Teacher notes / Tips:**  
   - Encourage children to think about their own role models.  
   - Use the game to reinforce disciples’ names and roles.
