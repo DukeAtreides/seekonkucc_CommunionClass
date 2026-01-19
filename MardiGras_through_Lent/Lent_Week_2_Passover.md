@@ -36,7 +36,7 @@ In Jesus name we pray -  Amen
    - I'm estimating about 15 minutes for the movies. 15-20 minutes for the discussion and activity. You might need to take the lead on the discussion. And then 10-15 minutes of free time.
    - If the kids ask more about Jewish beliefs, you can tell them about Rabbi Hillel, who lived around the time of Jesus. You'll also have to explain what a rabbi is and what the Torah is. Rabbi Hillel said:
      > 'That Which Is Hateful to You, Do Not Do to Your Fellow! That is the Whole Torah; The Rest is Interpretation'
-     > This is another way to word the Golden Rule.
+   - This is another way to word the Golden Rule.
 - **Passport Location:** 
 - **Resources / Books / Handouts:**   
 - **TODOs / follow-up:** 
