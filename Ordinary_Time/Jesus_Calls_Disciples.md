@@ -15,8 +15,17 @@ Opening Prayer: pass offering basket, light candle (battery operated) Repeat Pra
   - Who are your role models? Why?
   - How can you be a good role model for others?  
   - How does critical thinking help us choose who to follow?  
-- **Materials / Supplies:** TODO 
-- **Activities (step-by-step):** TODO
+- **Materials / Supplies:**
+  - Paper for tracing foot prints
+  - Crayons/markers
+  - Tape
+- **Activities (step-by-step):** Role Model Walk
+  - Each child traces each of their feet on a piece of paper.
+  - Each child decorates 2–4 paper footprints.
+  - On each footprint they write or draw:
+    - One way they can follow Jesus (be kind, share, pray, help) OR
+    - one role model they want to follow (mom, dad, Jesus, teacher)
+  - Create a Path: Attach footprints on wall or bulletin board, maybe leading from their doves.
 - **Teacher notes / Tips:**  
   - Encourage children to think about their own role models.  
   - Use the game to reinforce disciples’ names and roles.
@@ -32,4 +41,11 @@ Dear God,
 As we leave our gathering space today, Please Bless all of us this week and keep us safe. Amen
 
 ---
+
+    
+    
+    
+    
+
+
 
