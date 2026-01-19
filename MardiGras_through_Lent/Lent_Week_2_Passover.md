@@ -17,7 +17,7 @@ In Jesus name we pray -  Amen
   > Jesus was not Christian. He was `Jewish`. He celebrated all the stories and celebrations of the `Jewish` people. 1500 years before Jesus lived, there lived a Hebrew man named Moses. Hebrew is what the Jewish people were called in very ancient times. You learned a little bit about Moses earlier in the year. But to refresh, in the time of Moses, the Hebrew people were `slaves` in Egypt. A slave is someone who is forced to work for someone else. With God's help, Moses lead his people to freedom. This is the story of the `Passover`. Each spring, the Jewish people celebrate a `Sedar` meal to remember this story. Jesus also celebrated the `Sedar` meal to remember the `Passover` event.
 - ** Watch:** [The Passover in 10 scenes](https://www.youtube.com/watch?v=Y0oW_YVEqOU)
 - ** Watch: ** [Dr Mayim Bialik Talks about the Passover](https://www.youtube.com/watch?v=B4ofR01Fn7s)
-- ** Watch: ** [The Passover Sedar: What to Except] https://www.youtube.com/watch?v=LzsuL9U1a_k
+- ** Watch: ** [The Passover Sedar: What to Except](https://www.youtube.com/watch?v=LzsuL9U1a_k)
   > Please make sure you use `Full Screen` mode to prevent any inappropriate videos or comments from showing up on the side bar.
 - **Key questions / Discussion points:**  
    - Is there anything you didn't understand?
