@@ -12,6 +12,7 @@ In Jesus name we pray -  Amen
 - **Theme:** We all have traditions, but not all people have the same traditions.
 - **Learning objectives:**  
   - Children will be able to name 3 elements of the Passover story and Sedar meal
+  - Children will think about the importance of remembering the past and family traditions.
 - **Context / Purpose:** 
 - **Opening (Say):**
   > Jesus was not Christian. He was `Jewish`. He celebrated all the stories and celebrations of the `Jewish` people. 1500 years before Jesus lived, there lived a Hebrew man named Moses. Hebrew is what the Jewish people were called in very ancient times. You learned a little bit about Moses earlier in the year. But to refresh, in the time of Moses, the Hebrew people were `slaves` in Egypt. A slave is someone who is forced to work for someone else. With God's help, Moses lead his people to freedom. This is the story of the `Passover`. Each spring, the Jewish people celebrate a `Sedar` meal to remember this story. Jesus also celebrated the `Sedar` meal to remember the `Passover` event. Today, Jewish people celebrate the Passover and have `Sedar` meals around the time when we have Easter. Jewish people follow God differently than how Christians do it. It's important to understand how other people believe, think, and celebrate life.
@@ -24,14 +25,14 @@ In Jesus name we pray -  Amen
    - Christians don't celebrate Passover. We celebrate Easter at around the same time.  How are traditions that other people celebrate similar to what we celebrate? How are they different?
    - Did anyone notice them talking about memories and remembering?
    - How do traditions keep our memories alive of past times? 
-   - Why are family traditions and remembering important?
+   - Why is remembering the past important?
 - **Materials / Supplies:** Paper, markers
 - **Activities (step-by-step):** Family Traditions
    - Write down 3 things you learned about Passover and the Sedar.
    - Write down some family traditions you have, or holidays you celebrate, and why are they important?
-   - Have you heard stories of traditions your parents did? If so, write them down too.
+   - Have you heard stories of traditions your parents did? Do you remember any family members who died, or have your parents talked about people who came before? If so, write them down too.
    - Share and discuss.
-- **Teacher notes / Tips:**  I'm estimating about 15 minutes for the movies. 15-20 minutes for the discussion and activity. And then 10-15 minutes of free time.
+- **Teacher notes / Tips:**  I'm estimating about 15 minutes for the movies. 15-20 minutes for the discussion and activity. You might need to take the lead on the discussion. And then 10-15 minutes of free time.
 - **Passport Location:** 
 - **Resources / Books / Handouts:**   
 - **TODOs / follow-up:** 
