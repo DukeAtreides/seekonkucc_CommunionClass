@@ -11,12 +11,14 @@ Dear God, We are thankful we are gathered here today. Be with us as we learn mor
 - **Opening (Say):**  
   > "Does anyone remember what we discussed last week? What is the Golden Rule?"  
   > (Expected answer: “Treat other people how you want to be treated, if you were in their shoes.”)
-  >  "Jesus gave a speech about the Golden rule. This is called the Sermon on the Mount."
+  >  "Jesus gave a speech about the Golden rule. This is called the Sermon on the Mount. He said that especially when its hard to be kind, we should be kind."
   > We will read a book that discusses things related to the Golden Rule.
 - **Scripture / Read:** The `Be Kind` Book.
 - **Key questions / Discussion points:**  
   - What is the Golden Rule?  
-  - How can we help others like Jesus taught?  
+  - How can we help others like Jesus taught?
+  - Is it always easy to be kind?
+  - Is it always easy to know how to be kind and know what to do?
 
 - **Activities (step-by-step):**  Communion Stoles
 - Materials / Supplies: Stole fabric, paint, stamps (heart, bread, chalice, dove), vinyl tablecloths, paper bowls
