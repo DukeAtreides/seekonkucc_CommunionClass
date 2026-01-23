@@ -16,8 +16,8 @@
 ### 4/2: Holy Thursday
 ### 4/5: Easter
 ### 4/12: Easter Week 2 - On The Road to Emmaus and the Ascension TODO: Find stuff for communion banners/posters
-### 4/19: Easter Week 3 - The Early Church and Pentecost  TODO: Find tissue paper, contact paper, construction paper for stained glass
-### 4/26: Easter Week 4 - The Bible
+### 4/19: Easter Week 3 - The Early Church and Pentecost For 2026: we'll make the stoles
+### 4/26: Easter Week 4 - The Bible   TODO for 2026: Find tissue paper, contact paper, construction paper for stained glass.
 ### 5/3: Easter Week 5 - The Lord's Prayer and the 5 Finger Prayer  TODO: Find stuff for prayer beads
 ### 5/10: Easter Week 6 - Prepare for Communion Celebration
 ### 5/17: Easter Week 7 - Ascension Sunday - Communion Celebration
