@@ -15,16 +15,18 @@ In Jesus name we pray -  Amen
   - Explain the symbolism of bread and wine in Communion.  
   - Understand how love and sharing nourish the spirit.  
   - Learn about the church’s role in helping others.
-- **Context / Purpose:** To connect the biblical story to Communion and the church’s mission of love and service.  
+- **Context / Purpose:** To connect the biblical story to Communion and the church’s mission of love and service.
+- ** Opening (Say): **
+   > "Jesus gave a speech on a mountain, called the Sermon the Mount, where he talked about the Golden Rule".
 - **Scripture / Read:** The Feeding of the Five Thousand, The Children’s Illustrated Bible, p.228  
-- **Opening (Say):**  
+- **Say:**  
   > "Right after the feeding of the 5,000, Jesus said: ‘I am the bread of life... My flesh is real food and my blood is real drink. Whoever eats my flesh and drinks my blood remains in me, and I in them.’ Then he explained that ‘The words I have spoken to you—they are full of the Spirit and life.’ That means his message of love for one another, following the Golden Rule, sharing, thinking of others — those things nourish you and the communities you live in. Love nourishes your spirit."  
 - **Key questions / Discussion points:**  
   - How does love nourish you?  
   - How do we share and care for others in our church?  
 - **Materials / Supplies:** N/A
 - **Activities (step-by-step):**  Introduce Social Mission & Action
-  - Show food pantry (porch)
+  - Show and explain the food pantry (porch)
   - Explain Doorways.
   - Explain UCAP
   - Explain our work with Haiti
