@@ -33,7 +33,21 @@
 ### Sacrifice - Giving up something good for the benefit of someone else.
 - Doing the works of mercy means that we are making sacrifices of our time and money for others.
 - An example: When we have cookies, we might have to make a sacrifice and share them with our brother
-- Ashes are a symbol of sacrifice. The minister will put ashes on our foreheads on `Ash Wednesday`, which is this coming Wednesday.
+
+### Humility and Repetence
+- `Ashes` are a symbol of `sacrifice`, `repentence`, and `humility`. The minister will put ashes on our foreheads on `Ash Wednesday`, which is this coming Wednesday.
+- `Repentence` means going from doing the wrong thing to doing the right thing. 
+- `Humility`, or being humble, means not thinking you are better than other people even if you are really good at something.
+- When thinking of `humility`, think of the `Mirror Rule`:
+  - A humble person doesn't spend all day looking at themselves and bragging; they look at others and see how they can help.
+
+### Everyday examples of humility
+- Winning a Game: Instead of saying, "I'm the best! You lost!" a humble person says, "Great game! You played really hard!".
+- Making a Mistake: Humility means saying "I'm sorry, I was wrong" instead of making excuses or blaming someone else.
+- Getting a Compliment: When someone says, "I love your drawing," a humble person says "Thank you!" and might mention how their teacher helped them learn to draw.
+- In Line: Letting someone else go first just to be kind, even if you really want to be first. 
+
+### Lenten Sacrifice
 - Many Christians think about a special sacrifice or make an effort to do something extra (sacrifice of time) during Lent.
 - Making a small sacrifice helps us practice being able to make important sacrifices when we get older.
 
