@@ -1,3 +1,8 @@
+This isn't being used for 2026, but I left it here so I don't have to rewrite a lesson next year.
+
+
+
+
 Opening Prayer: pass offering basket, light candle (battery operated) 
 Repeat Prayer:  
 Dear God, 
