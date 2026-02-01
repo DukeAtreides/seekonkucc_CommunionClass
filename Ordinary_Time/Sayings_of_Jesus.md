@@ -17,7 +17,7 @@ In Jesus name we pray -  Amen
 - **Context / Purpose:** To 
 - ** Opening (Say): **
    > There are many sayings of Jesus we get from the 4 `Gospels`. 
-- **Scripture / Read:** 
+- **Scripture / Read:** [The Sayings of Jesus](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/SayingsOfJesus.md)
 - **Say:**  
 - **Key questions / Discussion points:**  
 
