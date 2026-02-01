@@ -34,9 +34,9 @@
 - Doing the works of mercy means that we are making sacrifices of our time and money for others.
 - An example: When we have cookies, we might have to make a sacrifice and share them with our brother
 
-### Repetence
-- `Ashes` are a symbol of `sacrifice`, `repentence`, and `humility`. The minister will put ashes on our foreheads on `Ash Wednesday`, which is this coming Wednesday.
-- `Repentence` means going from doing the wrong thing to doing the right thing.
+### Repentance
+- `Ashes` are a symbol of `sacrifice`, `repentance`, and `humility`. The minister will put ashes on our foreheads on `Ash Wednesday`, which is this coming Wednesday.
+- `Repentance` means going from doing the wrong thing to doing the right thing.
 - When we repent, we ask God to `forgive` us of things we've done wrong.
 - `Humility`, or being humble, means not thinking you are better than other people even if you are really good at something.
 - When thinking of `humility`, think of the `Mirror Rule`:
