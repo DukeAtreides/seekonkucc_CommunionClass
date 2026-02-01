@@ -15,7 +15,7 @@
 ### 3/29: Lent Week 6: Palm Sunday 
 ### 4/2: Holy Thursday
 ### 4/5: Easter
-### 4/12: Easter Week 2 - [The Sayings of Jesus / Hmulity / Non-Greed](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Sayings_of_Jesus.md) 
+### 4/12: Easter Week 2 - [The Sayings of Jesus / Humility / Non-Greed](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Sayings_of_Jesus.md) 
 ### 4/19: Easter Week 3 - The Early Church and Pentecost For 2026: we'll make the stoles
 ### 4/26: Easter Week 4 - The Bible   TODO for 2026: Find tissue paper, contact paper, construction paper for stained glass.
 ### 5/3: Easter Week 5 - The Lord's Prayer and the 5 Finger Prayer  TODO: Find stuff for prayer beads
