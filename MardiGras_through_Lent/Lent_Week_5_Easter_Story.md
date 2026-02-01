@@ -29,8 +29,9 @@ In Jesus name we pray -  Amen
    - Kids will take turns drawing on the stencils. When possible, could work at the same time. But the idea is to make sure each kid can have a turn drawing the letters.
      > Put `Love` in the biggest letters in the middle
      > Put `Empathy` and `Compassion` in the biggest letters (either top/bottom across or on the sides going downwards).
-     > Put other words from the [keyword review sheet](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/Keywords.md)
+     > Put the words from the [keyword review sheet](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/Keywords.md)
      > Review the meaning of the words and think of examples as the kids are making the poster.
+     > If there is extra space (and I imagine there will be), then add words like `Communion` or `Jesus` or `church`. But please use up the words in the list first - those are core values that everything revolves around.
    - Color the letters if there is time. If not, there's always next week.
 
 - **Teacher notes / Tips:** This is the activity for the following week too.
