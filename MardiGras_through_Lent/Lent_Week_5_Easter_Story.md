@@ -23,6 +23,7 @@ In Jesus name we pray -  Amen
 - **Materials / Supplies:** Poster board, markers, stencils, rulers
 - **Activities (step-by-step):** Make the Keyword Poster (Part 1)
    - Firstly, don't rush. There will be time next week to continue this.
+   > Please tell the kids that this poster will be displayed at the Communion Celebration, so to work carefully and slowly.
    - This serves as a review of keywords already covered (or some that will be covered later in the curriculum)
    - Use stencils to fill the poster board with keywords.
    - Kids will take turns drawing on the stencils. When possible, could work at the same time. But the idea is to make sure each kid can have a turn drawing the letters.
