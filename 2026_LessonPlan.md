@@ -9,7 +9,7 @@
 ### 2/15: [Sunday Before Lent: Works of Mercy and Sacrifice](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/MardiGras_Sunday.md) Todo: Materials for Mercy wheel
 ### 2/22: [Lent Week 1: Jesus is Tempted / Conscience / Peer Pressure](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_1.md)
 ### 3/1: [Lent Week 2: The Prodigal Son / Forgiveness]
-### 3/8: [Lent Week 2: Judaism and Passover / Family Traditions / Remembering the Past](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Passover.md) TODO: can the kids bring in a holiday picture and discuss something that usually do? Or bring in a picture of deceased relative and talk about them. Something that connects them to the past.
+### 3/8: [Lent Week 3: Judaism and Passover / Family Traditions / Remembering the Past](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Passover.md) TODO: can the kids bring in a holiday picture and discuss something that usually do? Or bring in a picture of deceased relative and talk about them. Something that connects them to the past.
 ### 3/15: [Lent Week 4: The Lord's Supper](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_3_LastSupper.md)
 ### 3/22: [Lent Week 5: Easter Story / Empathy](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_5_Easter_Story.md)
 ### 3/29: Lent Week 6: Palm Sunday 
