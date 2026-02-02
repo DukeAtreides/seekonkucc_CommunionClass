@@ -1,4 +1,4 @@
-## Title: How Kids Can Show God's Love: Works of Mercy and Sacrifice
+## Title: How Kids Can Show God's Love: Works of Mercy, Sacrifice, Repentance
 - As you get older, the kinds of things you do to help people will change. These are ways kids can practice the Works of Mercy.
 - It's also really important to graciously receive acts of mercy when someone performs one for you.
 
@@ -37,6 +37,7 @@
 ### Repentance
 - `Ashes` are a symbol of `sacrifice`, `repentance`, and `humility`. The minister will put ashes on our foreheads on `Ash Wednesday`, which is this coming Wednesday.
 - `Repentance` means going from doing the wrong thing to doing the right thing.
+- Another word for doing the wrong thing is `sin`. We need to repent of our `sin`.
 - When we repent, we ask God to `forgive` us of things we've done wrong.
 - `Humility`, or being humble, means not thinking you are better than other people even if you are really good at something.
 - When thinking of `humility`, think of the `Mirror Rule`:
