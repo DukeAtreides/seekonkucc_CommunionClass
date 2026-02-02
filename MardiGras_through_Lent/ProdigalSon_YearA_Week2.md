@@ -62,7 +62,6 @@ God’s welcome and forgiveness; mercy is greater than fairness.
 - Simple costume pieces for role-play (scarves, headbands, small robes)
 - Construction paper, crayons/markers, stickers, glue, yarn (for banner/cards)
 - Printed sequencing sheet (4 boxes) or plain paper for drawing
-- Optional: small snack for celebration (if permitted)
 
 ---
 
