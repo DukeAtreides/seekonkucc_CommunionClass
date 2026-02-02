@@ -42,6 +42,9 @@
 - `Humility`, or being humble, means not thinking you are better than other people even if you are really good at something.
 - When thinking of `humility`, think of the `Mirror Rule`:
   - A humble person doesn't spend all day looking at themselves and bragging; they look at others and see how they can help.
+  - A humble person will also be honest with themselves and others.
+  - One of the most humble ways to receive a compliment is simply by saying "Thank you".
+  - A humble thing to do is give others compliments.
 
 ### Lenten Sacrifice
 - Many Christians think about a special sacrifice or make an effort to do something extra (sacrifice of time) during Lent.
