@@ -20,6 +20,9 @@ In Jesus name we pray -  Amen
    - Review the story. Ask the kids to summarize their ideas about it.
    - Review the [Keyword Review Sheet](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/Keywords.md), specifically
      `Love`, `Compassion`, and `Empathy`.
+   - Review the [Sayings of Jesus Sheet](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/SayingsOfJesus.md) to show
+     how the keywords relate to some of the things Jesus said.
+     > Explain how the sayings relate to the keywords.
 - **Materials / Supplies:** Poster board, markers, stencils, rulers
 - **Activities (step-by-step):** Make the Keyword Poster (Part 1)
    - Firstly, don't rush. There will be time next week to continue this.
@@ -33,8 +36,13 @@ In Jesus name we pray -  Amen
      > Review the meaning of the words and think of examples as the kids are making the poster.
      > If there is extra space (and I imagine there will be), then add words like `Communion` or `Jesus` or `church`. But please use up the words in the list first - those are core values that everything revolves around.
    - Color the letters if there is time. If not, there's always next week.
+- ** Homework **
+    > Ask the kids to pick out 2 sayings of Jesus (using the sheet as a suggestion), and bring their choices back for the next lesson. They will recite one of their choices at the communion celebration, which they will practice (at home) over the next couple of months.
+    > The sayings need to come from the Gospels (eg, not from the book of Revelation).
+    > The reason for 2 choices is in case kids pick out the same ones.
+    > They should pick these out at home with their parents, not in class.
 
-- **Teacher notes / Tips:** This is the activity for the following week too.
+- **Teacher notes / Tips:** This is the activity for the following week too. Also, note the home work
 
 - **Passport Location:** 
 - **TODOs / follow-up:** 
