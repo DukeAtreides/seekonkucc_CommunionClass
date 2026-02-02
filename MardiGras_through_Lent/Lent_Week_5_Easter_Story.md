@@ -39,7 +39,7 @@ In Jesus name we pray -  Amen
 - ** Homework **
     > Ask the kids to pick out 2 sayings of Jesus (using the sheet as a suggestion). Write them down on a piece of paper, with the Gospel verse.
     > Then bring their choices back for the next lesson. They will recite one of their choices at the communion celebration, which they will practice (at home) over the next couple of months.
-    > The sayings need to come from the Gospels (eg, not from the book of Revelation).
+    > The sayings need to come from the Gospels (ie, not from the book of Revelation).
     > The reason for 2 choices is in case kids pick out the same ones.
     > They should pick these out at home with their parents, not in class.
 
