@@ -1,5 +1,5 @@
 ## Winter/Spring 2026
-### This schedule is based on the liturgical calendar
+### This schedule is based on the liturgical calendar (note: Jesus calls his discplies and Sermon on the Mount should be switched for next year to align with the Year A). 
 
 ### 12/25/2025 - 1/11: [Christmas Season: Epiphany and Baptism of Jesus](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Christmas/Temporary.md)
 ### 1/18: [Martin Luther King](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/SpecialDays/MLK.md)
