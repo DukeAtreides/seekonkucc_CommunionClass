@@ -12,7 +12,7 @@
 | Repentance | Saying sorry for something bad you did and trying to do better next time.|
 | Humility	| Being humble means not bragging and knowing it’s okay to ask for help. |
 | Sacrifice |	Giving up something you like to help someone else or do the right thing.|
-| Community |	A group of people who live or work together and help each other.|
+| Community |	A group of people who live or work together and help each other. Our church is a community. |
 
 ## Examples
 
