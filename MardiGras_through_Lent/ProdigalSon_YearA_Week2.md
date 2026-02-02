@@ -93,7 +93,6 @@ Handout: [Prodigal Son Script](https://github.com/DukeAtreides/seekonkucc_Commun
 ---
 
 ## Teacher Notes / Tips
-- **Age adjustments:**
 - Keep language concrete; focus on feelings and the father’s welcome. Shorter activities, more drawing.
 - Discuss the older brother’s perspective, fairness vs. mercy, and connect to other “lost” parables (Lost Sheep, Lost Coin).
 - **Sensitivity:** Some children’s family situations may mirror parts of the story. Avoid emphasizing family abandonment; focus on God’s love and safety. Offer children the option to observe rather than role-play.
