@@ -69,6 +69,7 @@ God’s welcome and forgiveness; mercy is greater than fairness.
 ## Activity
 
 ### 1) Role-play / Skit (15 min)
+Handout: [Prodigal Son Script](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/ProdigalSonPlay.md)
 - Assign roles: father, younger son, older brother, narrator, servants.
 - Narrator briefly summarizes scenes while actors pantomime:
   - Leaving home
