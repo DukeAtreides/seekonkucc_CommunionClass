@@ -15,7 +15,7 @@ In Jesus name we pray -  Amen
 - **Context / Purpose:** 
 - **Opening (Say):** 
   > In Jesus' time, the Roman Empire ruled many lands, including the land of Judea, where Jesus lived. The Roman official in charge was named Pontius Pilate. We know from other books of the time, that Pontius Pilate was espcially mean and cruel. In the story we are reading today, Pontius Pilate is judging Jesus at a place called the `Praetorium`. He will ultimately sentence him to be crucified. But Jesus will be raised from the dead and ascend back to heaven.
-- **Scripture / Read:** Read: `Love One Another`
+- **Scripture / Read:** Read: `Love One Another: The Last Days of Jesus` by Lauren Thompson
 - **Key questions / Discussion points:**  
    - Review the story. Ask the kids to summarize their ideas about it.
    - Review the [Keyword Review Sheet](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/Keywords.md), specifically
