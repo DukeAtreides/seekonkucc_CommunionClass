@@ -11,11 +11,11 @@
 ### 3/1: [Lent Week 2: The Prodigal Son / Forgiveness](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/ProdigalSon_YearA_Week2.md)
 ### 3/8: [Lent Week 3: Judaism and Passover / Family Traditions / Remembering the Past](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Passover.md) TODO: can the kids bring in a holiday picture and discuss something that usually do? Or bring in a picture of deceased relative and talk about them. Something that connects them to the past.
 ### 3/15: [Lent Week 4: The Lord's Supper](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_3_LastSupper.md)
-### 3/22: [Lent Week 5: Easter Story / Empathy](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_5_Easter_Story.md)
+### 3/22: [Lent Week 5: Easter Story / Empathy / Keywords / Sayings of Jesus](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Lent_Week_5_Easter_Story.md)
 ### 3/29: Lent Week 6: [Palm Sunday](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Palm_Sunday_Week_6.md) 
 ### 4/2: Holy Thursday
 ### 4/5: Easter
-### 4/12: Easter Week 2 - [The Sayings of Jesus / Humility / Non-Greed](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Sayings_of_Jesus.md) 
+### 4/12: Easter Week 2 -
 ### 4/19: Easter Week 3 - The Early Church and Pentecost For 2026: we'll make the stoles
 ### 4/26: Easter Week 4 - The Bible   TODO for 2026: Find tissue paper, contact paper, construction paper for stained glass.
 ### 5/3: Easter Week 5 - The Lord's Prayer and the 5 Finger Prayer  TODO: Find stuff for prayer beads
