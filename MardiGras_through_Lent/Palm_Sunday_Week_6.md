@@ -15,8 +15,9 @@ In Jesus name we pray -  Amen
 - ** Opening **:
    > Remember from the Easter story, when Jesus rode into Jersalem on a donkey, and everyone cheered?
    > Today, is Palm Sunday. We remember that story today. We use palms because the people put palms in front of Jesus when he rode in.
+- ** Collect ** the sayings of Jesus assigned from last week.
 - **Materials / Supplies:** Poster board, markers, stencils, rulers
-- **Activities (step-by-step):** Make the Keyword Poster (Part 2)
+- **Activities (step-by-step):** Make the Keyword Poster (Part 2) 
    - If possible, finish the poster.
    - This serves as a review of keywords already covered (or some that will be covered later in the curriculum)
    - Use stencils to fill the poster board with keywords.
