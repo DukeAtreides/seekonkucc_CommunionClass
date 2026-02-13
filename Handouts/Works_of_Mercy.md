@@ -11,7 +11,7 @@
 - Feed the Hungry: Share a cookie with your brother, bring food to the food pantry.
 - Give Drink to the Thirsty: Offer your friends a drink when they visit.
 - Clothe the Naked: Donate old clothes, share an extra coat if someone is cold.
-- Shelter the Homeless: Pray for people who don't have homes, help clean up a park, when you are a litte older even volunteer to build a house with [Habitat for Humanity](https://www.habitat.org/about)
+- Shelter the Homeless: Donate money to help people, help clean up a park, when you are a litte older even volunteer to build a house with [Habitat for Humanity](https://www.habitat.org/about)
 - Visit the Sick: Draw a picture for someone who is sick, call a grandparent.
 - Visit the Imprisoned: Pray for people who are far away or in difficult places.
 - Comfort the Grieving: Be there for your friends who are sad about losing a pet or a loved one. Pray for those who are sad.
