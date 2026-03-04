@@ -55,7 +55,7 @@ God’s welcome and forgiveness; mercy is greater than fairness.
 - How did the older brother feel? Why might someone feel that way?
 - What does this story teach us about God? About how we should treat others?
 - Wrap-up main idea: God forgives and rejoices when we come back; forgiveness is about love more than fairness.
-
+- Ask the kids how their Lenten promise is going.
 ---
 
 ## Materials / Supplies
