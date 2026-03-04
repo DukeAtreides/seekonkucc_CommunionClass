@@ -23,6 +23,7 @@ In Jesus name we pray -  Amen
    - Review the [Sayings of Jesus Sheet](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Handouts/SayingsOfJesus.md) to show
      how the keywords relate to some of the things Jesus said.
      > Explain how the sayings relate to the keywords.
+   - Ask kids how their Lenten promise is going.
 - **Materials / Supplies:** Poster board, markers, stencils, rulers
 - **Activities (step-by-step):** Make the Keyword Poster (Part 1)
    - Firstly, don't rush. There will be time next week to continue this.
