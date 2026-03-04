@@ -15,8 +15,8 @@
 ### 3/29: Lent Week 6: [Palm Sunday](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/MardiGras_through_Lent/Palm_Sunday_Week_6.md) 
 ### 4/2: Holy Thursday
 ### 4/5: Easter
-### 4/12: Easter Week 2 -
-### 4/19: Easter Week 3 - The Early Church and Pentecost For 2026: we'll make the stoles
+### 4/12: Easter Week 2 - For 2026: Make up Snow day: [Sermon On the Mount / Kindness ](https://github.com/DukeAtreides/seekonkucc_CommunionClass/blob/main/Ordinary_Time/Sermon_On_The_Mount.md)
+### 4/19: Easter Week 3 - The Early Church and Pentecost
 ### 4/26: Easter Week 4 - The Bible   TODO for 2026: Find tissue paper, contact paper, construction paper for stained glass.
 ### 5/3: Easter Week 5 - The Lord's Prayer and the 5 Finger Prayer  TODO: Find stuff for prayer beads
 ### 5/10: Easter Week 6 - Prepare for Communion Celebration
