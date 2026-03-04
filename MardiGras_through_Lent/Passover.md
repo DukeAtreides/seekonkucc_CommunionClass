@@ -26,6 +26,7 @@ In Jesus name we pray -  Amen
    - Did anyone notice them talking about memories and remembering?
    - How do traditions keep our memories alive of past times? 
    - Why is remembering the past important?
+   - Ask kids how their Lenten promise is going.
 - **Materials / Supplies:** Paper, markers
 - **Activities (step-by-step):** Family Traditions
    - Write down 3 things you learned about Passover and the Sedar.
