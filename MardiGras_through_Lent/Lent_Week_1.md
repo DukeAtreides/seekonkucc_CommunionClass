@@ -32,6 +32,7 @@ In Jesus name we pray -  Amen
      > Concrete reasons why its important to develop your conscience - it will help you interact better with other people, which will make yourself and the other person happier.
      > Listening to your conscience can help keep you safe and healthy, and it will help you make positive decisions.
   - Do the `Try This` section in the `Goals and Tools` section (page 22) of `Facing Peer Pressure`.
+  - Ask the kids how their Lenten promise is going.
 - **Materials / Supplies:** N/A
 - **Activities (step-by-step):** Play the `Mercy Wheel` again.
 - **Teacher notes / Tips:**  `Please **do not** teach there is a literal devil`.
